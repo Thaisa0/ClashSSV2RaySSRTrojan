@@ -80,5 +80,5 @@
 <b>[pornhub账号分享](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;如果无法登录，请自行注册或找代购购买，无法保证100%能用。</p>
 
- >   请从[https://cn.pornhubpremium.com/登录](https://cn.pornhubpremium.com/)    账号：`nundisloyal`   密码：`jhggVaL6PdfA`
+ >   [请从https://cn.pornhubpremium.com/登录](https://cn.pornhubpremium.com/)    账号：`nundisloyal`   密码：`jhggVaL6PdfA`
 
