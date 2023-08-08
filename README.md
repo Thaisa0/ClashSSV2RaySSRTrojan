@@ -68,8 +68,17 @@
 <b>[苹果商店美区账号分享](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;请不要绑定自己的手机号，直接跳过两步验证登录，从Appstore登录，而不是icloud，登录icloud会导致手机被锁直接报废！！！如果无法登录，请自行注册或找代购购买，苹果目前风控严格，无法保证100%能用。</p>
 
- >    账号：`npvqpjfn@outlook.com `   密码：`1{D1@79dzLC+~~i]`
+ >    账号：`npvqpjfn@outlook.com`   密码：`1{D1@79dzLC+~~i]`
 
- >    账号：`wes285207@163.com`       密码：`We7&dCZZk.pfV3}!`
+ >    账号：`wes285207@163.com`       密码：`#F5t}'UPr]hKF7._`
 
+<b>[Netflix账号分享](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;如果无法登录，请自行注册或找代购购买，无法保证100%能用。</p>
+
+ >    账号：`admin@52naifei.com`   密码：`287743`
+
+<b>[pornhub账号分享](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;如果无法登录，请自行注册或找代购购买，无法保证100%能用。</p>
+
+ >   请从https://cn.pornhubpremium.com/登录    账号：`nundisloyal`   密码：`jhggVaL6PdfA`
 
