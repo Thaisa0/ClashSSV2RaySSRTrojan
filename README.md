@@ -49,7 +49,7 @@
 
  >    账号：`npvqpjfn@outlook.com`   密码：`1{D1@79dzLC+~~i]`
 
- >    账号：`wes285207@163.com`       密码：`#F5t}'UPr]hKF7._`
+ >    账号：`wes285207@163.com`       密码：`+'B)r[%2+5oa2qHD`
 
 <b>[Netflix账号分享](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;如果无法登录，请自行注册或找代购购买，无法保证100%能用。</p>
