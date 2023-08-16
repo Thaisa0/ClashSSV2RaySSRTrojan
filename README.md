@@ -9,22 +9,6 @@
  
 👉 https://bit.ly/3ZlZgrU 
 
-
-2）<b>[Element](https://api.yuansu.uk/v1/guest/i/mSu6LmgG)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆BGP中继线路，三网优化高端机场，SS协议加密传输，月最低 10 块钱，节点包括，港，台，日，新，美，德，英。流媒体解锁，稳定高速。</p>
-
-👉 https://bit.ly/3mzxklV
-
-3）<b>[抖云加速](https://douyun.us/#/register?code=BwJyTE2t)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SS隧道加密多年老店大机场，节点地区包括港，台，日，美，新加坡，英国，德国，印度，荷兰，土耳其，越南，挪威等。Netflix，Disney+等流媒体，Chatgpt全解锁。还有九折优惠码：douyun666</p>
-
-👉 https://bit.ly/3N24JjC
-
-4）<b>[棉花云](https://kapok.one/#/register?code=pNPUA6Lb)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转SS协议不限速大机场，佛山移动，长沙联通和广州腾讯云等多个入口，香港HKBN、iCable、HKT，日本FDCServer、NTT，台湾Hinet等多个落地。节点包括，港，台，日，美，新加坡，印度，德国，英国，马来西亚，专注性价比。</p>
-
-👉 https://bit.ly/3DnB5Qp
-
 ------
 
 <b>[澳门电信一卡两号红蓝卡](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
