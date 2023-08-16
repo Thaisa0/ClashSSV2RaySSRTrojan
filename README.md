@@ -14,11 +14,6 @@
 
 👉 https://bit.ly/3Kr31GL
 
-3）<b>[饭饭云](http://bit.ly/3WWxDnC)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;不限速全中转稳定大机场，IPLC，IEPL等各种专门线路加持，流媒体全解锁，节点包括美国、日本、香港、台湾、新加坡、韩国，俄罗斯、阿根廷、菲律宾、印度、巴西、土耳其、德国、英国等。还有专门游戏专线助力。全平台客户端支持，购买半年套餐以上还能共享白嫖 Netflix，Disney+，Pornhub高级账号。</p>
-
-http://bit.ly/3WWxDnC
-
 ------
 
 <b>[澳门电信一卡两号红蓝卡](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
