@@ -58,5 +58,5 @@
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;福利机场订阅链接，不限时更新，无法保证100%能用。</p>
 
  >   https://v1.efshop.cc/api/v1/client/subscribe?token=4d80677e2b1c700cbf3b1841099a1ab0
- > https://sub.sanfen007.xyz/api/v1/client/subscribe?token=8b31be58552d0ceda4684935c793eed6&flag=clash
- > https://mie-sub.pz.pe/subscribe/ULKRIF5W87SVUXUN?clash=ssr&trojan
+ >   https://sub.sanfen007.xyz/api/v1/client/subscribe?token=8b31be58552d0ceda4684935c793eed6&flag=clash            
+ >   https://mie-sub.pz.pe/subscribe/ULKRIF5W87SVUXUN?clash=ssr&trojan
