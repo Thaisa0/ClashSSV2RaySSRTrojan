@@ -6,6 +6,8 @@
 
 1）<b>[Godetia](https://ssltd.club/#/register?code=DWZDIVnj)</b>
  <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全 G 口 IPLC,SS 协议国际不过墙真实跨境高级专线机场，8 线 BGP 入口，全球内网，原生节点。4K不卡，8K流畅，带宽跑满速。节点包括，香港，台湾，美国，日本，新加坡，韩国，巴基斯坦，英国，德国，澳大利亚，俄罗斯，荷兰，新西兰，巴西，阿根廷，土耳其，菲律宾，泰国，加拿大，埃及，马来西亚，越南，印度尼西亚，西班牙，法国等地区。全地区流媒体Netflix/Disney+/HBO/hulu/Bilibili/HULU/动画疯等全解锁，支持 Chatgpt ，更有沪日，京德，广港，沪韩等游戏节点提供，低延迟、高速。如丝般顺滑。畅游海外。 还有为“海外人士”专供的海外直连套餐，不用绕回国延迟小，畅游全球。</p>
+
+👉 **国庆专属优惠，月付/季付用户九五折优惠码：godetia不可以色色，半年付/年付用户九折优惠码：godetia可以色色，活动时间：2023/09/27 00:01 ~ 2023/10/06 23:59，季/半年/年付的本身价格自带一定比例的优惠（9~75折），越往后套餐自带折扣越大。**
  
 👉 https://bit.ly/3ZlZgrU 
 
@@ -26,12 +28,12 @@
 
 ------
 
-<b>[澳门电信一卡两号红蓝卡](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;适合在中国大陆，中国香港，中国澳门三地，打电话，发短信，合理合法合规访问外网，可做流量卡直接翻墙，但是需实名制。</p>
+<b>[TG群组搜索机器人](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;想搜一些有意思的电报群，又没有地方找，可以使用此机器人。</p>
 
-   （Easy+预付卡，俗称红卡）https://www.1888.com.mo/help/detail?tabCode=EASYPLUS
-   
-   （大湾区预付卡，俗称蓝卡）https://www.1888.com.mo/help/detail?tabCode=DXYW04
+👉 https://t.me/soso
+
+👉 https://t.me/jisou
 
 
 <b>[苹果商店美区账号分享](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
@@ -39,7 +41,7 @@
 
  >    账号：`npvqpjfn@outlook.com`   密码：`>eZ&BR:q9R{q;%,-`
 
- >    账号：`wes285207@163.com`       密码：`7QY%%5rTtbrAis\g`
+ >    账号：`wes285207@163.com`       密码：`uaKH&NGQjjY?D}(9`
 
 <b>[Netflix账号分享](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;如果无法登录，请自行注册或找代购购买，无法保证100%能用。</p>
@@ -49,5 +51,12 @@
 <b>[pornhub账号分享](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;如果无法登录，请自行注册或找代购购买，无法保证100%能用。</p>
 
- >   [请从https://cn.pornhubpremium.com/登录](https://cn.pornhubpremium.com/)    账号：`nundisloyal`   密码：`jhggVaL6PdfA`
+ >   [请从https://cn.pornhubpremium.com/登录](https://cn.pornhubpremium.com/)    账号：`kxtcuvshu@exelica.com`   密码：`8:nGJ>Z!ERkcc99F`
 
+
+<b>[福利分享](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;福利机场订阅链接，不限时更新，无法保证100%能用。</p>
+
+ >   https://v1.efshop.cc/api/v1/client/subscribe?token=4d80677e2b1c700cbf3b1841099a1ab0
+ > https://sub.sanfen007.xyz/api/v1/client/subscribe?token=8b31be58552d0ceda4684935c793eed6&flag=clash
+ > https://mie-sub.pz.pe/subscribe/ULKRIF5W87SVUXUN?clash=ssr&trojan
