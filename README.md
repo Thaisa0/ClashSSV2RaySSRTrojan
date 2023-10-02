@@ -12,7 +12,9 @@
 👉 https://bit.ly/3ZlZgrU 
 
 2）<b>[Teacat](https://miaona.co/#/register?code=VeKwsak1)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;100+节点高端稳定大机场。EPL企业级内网专线，不限设备，节点包括，港，台，美，日，新加坡，韩国，英国，土耳其等。注册即可免费试用三天。年付优惠码：T1</p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;100+节点高端稳定大机场。EPL企业级内网专线，不限设备，节点包括，港，台，美，日，新加坡，韩国，英国，土耳其等。注册即可免费试用三天。</p>
+
+👉 **年付永久优惠码：T1**
 
 👉 https://bit.ly/3MDu68f
 
