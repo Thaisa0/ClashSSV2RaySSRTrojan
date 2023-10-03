@@ -18,19 +18,15 @@
 
 👉 https://bit.ly/3MDu68f
 
-3）<b>[滑稽场Pro](https://huajic.pro/#/register?code=21ddNZp9)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转低倍率大机场。节点区域包含: 香港、台湾、新加坡、韩国、日本、马来西亚、美国、英国、德国、印度、荷兰、土耳其、意大利、柬埔寨、越南、阿根廷等。流媒体稳定解锁: Netflix | 动画疯 | Disney+ | Dazn | HBO | Amazon | Prime | ChatGPT等。注册即可免费体验1G流量。</p>
+3）<b>[泡泡Dog](https://www.paopao.dog/index.php#/register?code=J8Q5PsSG)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SS协议多地入口跨境部分IEPL专线，节点包括：香港|日本|新加坡|美国|台湾|印度|英国|韩国|巴西|阿根廷|土耳其|墨西哥|马拉西亚等，独家技术解锁NNetflix TVB 動畫瘋 AbemaTV DMM Hulu HBO-Go HBO-MAX Disney+ Amazon Prime Video FOX DAZN等流媒体，敏感时期也能稳定上网，平时谁都能跑满 晚高峰宽带足，丰富的宽带冗余无视任何高峰期。提供小火箭美区商店账号共享。全天不同时段节点采用不同倍率，最高 1 倍，最低可至 0.2 倍</p>
 
-👉 **中秋国庆限时活动，全场通用85折优惠码：喜迎国庆，年付限量8折优惠码：喜迎中秋（10份），活动时间：10月8日0点截止。**
+👉 https://bit.ly/3QwEGmC
 
-👉 https://bit.ly/3F0ZFai
+4）<b>[BerylCloud](https://dash.berylcloud.com/#/register?code=eBTitxIG)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;高端精品隧道+精品IEPL专线大机场，高稳定性和低延迟双项保证，Netflix，hulu，Disney+等流媒体全解锁，节点包括：港，台，新加坡，美，日，加拿大，韩国，土耳其，英国，德国。阿尔巴尼亚，智利，塞尔维亚，希腊。月付 8 元起，一元试用优惠码：TRIAL</p>
 
-4）<b>[OuONetwork](https://board.ouonet.work/reguser?aff=HtVk0Vef)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;稳定中转SS协议不限速大机场，SLA保证。流媒体解锁，节点包括，香港，台湾，日本，美国，英国，德国，新加坡等。不限制设备数量。</p>
-
-👉 **中秋国庆限时活动，优惠码：15%OFF，2023年10月31日结束。**
-
-👉 https://bit.ly/3EW091v
+👉 https://bit.ly/3KhASBG
 
 ------
 
