@@ -31,12 +31,7 @@
 
 👉 https://bit.ly/3MDu68f
 
-6）<b>[泡泡Dog](https://www.paopao.dog/index.php#/register?code=J8Q5PsSG)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SS协议多地入口跨境部分IEPL专线，节点包括：香港|日本|新加坡|美国|台湾|印度|英国|韩国|巴西|阿根廷|土耳其|墨西哥|马拉西亚等，独家技术解锁NNetflix TVB 動畫瘋 AbemaTV DMM Hulu HBO-Go HBO-MAX Disney+ Amazon Prime Video FOX DAZN等流媒体，敏感时期也能稳定上网，平时谁都能跑满 晚高峰宽带足，丰富的宽带冗余无视任何高峰期。提供小火箭美区商店账号共享。全天不同时段节点采用不同倍率，最高 1 倍，最低可至 0.2 倍</p>
-
-👉 https://bit.ly/3QwEGmC
-
-7）<b>[BerylCloud](https://dash.berylcloud.com/#/register?code=eBTitxIG)</b>
+6）<b>[BerylCloud](https://dash.berylcloud.com/#/register?code=eBTitxIG)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;高端精品隧道+精品IEPL专线大机场，高稳定性和低延迟双项保证，Netflix，hulu，Disney+等流媒体全解锁，节点包括：港，台，新加坡，美，日，加拿大，韩国，土耳其，英国，德国。阿尔巴尼亚，智利，塞尔维亚，希腊。月付 8 元起，一元试用优惠码：TRIAL</p>
 
 👉 https://bit.ly/3KhASBG
