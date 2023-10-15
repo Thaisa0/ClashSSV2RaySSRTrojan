@@ -59,14 +59,14 @@
 <b>[苹果商店美区账号分享](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;请不要绑定自己的手机号，直接跳过两步验证登录，从Appstore登录，而不是icloud，登录icloud会导致手机被锁直接报废！！！如果无法登录，请自行注册或找代购购买，苹果目前风控严格，无法保证100%能用。</p>
 
- >    账号：`npvqpjfn@outlook.com`   密码：`>eZ&BR:q9R{q;%,-`
+ >    账号：`npvqpjfn@outlook.com`   密码：`zSgPhpR5ud`
 
- >    账号：`wes285207@163.com`       密码：`uaKH&NGQjjY?D}(9`
+ >    账号：`wes285207@163.com`       密码：`Ta39oAh1Ee`
 
 <b>[Netflix账号分享](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;如果无法登录，请自行注册或找代购购买，无法保证100%能用。</p>
 
- >    账号：`admin@52naifei.com`   密码：`173319`
+ >    账号：`admin@52naifei.com`   密码：`231700`
 
 <b>[pornhub账号分享](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;如果无法登录，请自行注册或找代购购买，无法保证100%能用。</p>
@@ -82,3 +82,7 @@
  >   https://sub.sanfen007.xyz/api/v1/client/subscribe?token=8b31be58552d0ceda4684935c793eed6&flag=clash
 >          
  >   https://mie-sub.pz.pe/subscribe/ULKRIF5W87SVUXUN?clash=ssr&trojan
+>
+ >   https://v4.dogapi.yachts/api/v1/client/subscribe?token=f7b163161473482c3336d4c985a528e5
+>
+ >   https://s.sdncimcin.xyz/link/jzZXK7DIs6fdGdNU?clash=1 
