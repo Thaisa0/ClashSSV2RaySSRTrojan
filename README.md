@@ -69,9 +69,9 @@
 <b>[苹果商店美区账号分享](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;请不要绑定自己的手机号，直接跳过两步验证登录，从Appstore登录，而不是icloud，登录icloud会导致手机被锁直接报废！！！如果无法登录，请自行注册或找代购购买，苹果目前风控严格，无法保证100%能用。</p>
 
- >    账号：`npvqpjfn@outlook.com`   密码：`zSgPhpR5ud`
+ >    账号：`npvqpjfn@outlook.com`     密码：`WEsoG9MJ0t`
 
- >    账号：`wes285207@163.com`       密码：`Ta39oAh1Ee`
+ >    账号：`wes285207@163.com`        密码：`c0LREUrbV8`
 
 <b>[Netflix账号分享](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;如果无法登录，请自行注册或找代购购买，无法保证100%能用。</p>
@@ -95,4 +95,8 @@
 >
  >   https://v4.dogapi.yachts/api/v1/client/subscribe?token=f7b163161473482c3336d4c985a528e5
 >
- >   https://s.sdncimcin.xyz/link/jzZXK7DIs6fdGdNU?clash=1 
+ >   https://s.sdncimcin.xyz/link/jzZXK7DIs6fdGdNU?clash=1
+>
+>    https://s.suying666.info/link/LMCwdYqIJIlM1LFT?clash=1
+>
+>    https://s.youyun666.site/link/rOTRdYD9HzMPA9V3?clash=1
