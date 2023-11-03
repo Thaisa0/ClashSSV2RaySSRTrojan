@@ -53,6 +53,11 @@
 
 👉 https://bit.ly/3mzxklV
 
+10）<b>[棉花云](https://www.mianhuayun.club/#/register?code=pNPUA6Lb)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转SS协议不限速大机场，佛山移动，长沙联通和广州腾讯云等多个入口，香港HKBN、iCable、HKT，日本FDCServer、NTT，台湾Hinet等多个落地。节点包括，港，台，日，美，新加坡，印度，德国，英国，马来西亚，专注性价比。</p>
+
+👉 https://bit.ly/3PP250B
+
 ------
 
 <b>[TG群组搜索机器人](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
