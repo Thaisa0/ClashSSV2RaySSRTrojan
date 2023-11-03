@@ -39,6 +39,8 @@
 7）<b>[OuONetwork](https://board.ouonet.work/reguser?aff=HtVk0Vef)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;稳定中转SS协议不限速大机场，SLA保证。流媒体解锁，节点包括，香港，台湾，日本，美国，英国，德国，新加坡等。不限制设备数量。你最好的 跨越网络伙伴。</p>
 
+👉 **双十一优惠码：25%OFF**
+
 👉 https://bit.ly/3EW091v
 
 8）<b>[滑稽场Pro](https://huajic.pro/#/register?code=21ddNZp9)</b>
