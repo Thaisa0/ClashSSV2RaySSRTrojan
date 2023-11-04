@@ -71,9 +71,9 @@
 <b>[苹果商店美区账号分享](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;请不要绑定自己的手机号，直接跳过两步验证登录，从Appstore登录，而不是icloud，登录icloud会导致手机被锁直接报废！！！如果无法登录，请自行注册或找代购购买，苹果目前风控严格，无法保证100%能用。</p>
 
- >    账号：`npvqpjfn@outlook.com`     密码：`WEsoG9MJ0t`
+ >    账号：`npvqpjfn@outlook.com`     密码：`7lAI4xvE0M`
 
- >    账号：`wes285207@163.com`        密码：`c0LREUrbV8`
+ >    账号：`wes285207@163.com`        密码：`IR6ysjDWa8`
 
 <b>[Netflix账号分享](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;如果无法登录，请自行注册或找代购购买，无法保证100%能用。</p>
@@ -90,7 +90,7 @@
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;福利机场订阅链接，不限时更新，无法保证100%能用。</p>
 
  >   https://v1.efshop.cc/api/v1/client/subscribe?token=4d80677e2b1c700cbf3b1841099a1ab0
-> 
+>
  >   https://sub.sanfen007.xyz/api/v1/client/subscribe?token=8b31be58552d0ceda4684935c793eed6&flag=clash
 >          
  >   https://mie-sub.pz.pe/subscribe/ULKRIF5W87SVUXUN?clash=ssr&trojan
