@@ -31,12 +31,10 @@
 
 👉 https://bit.ly/3MDu68f
 
-6）<b>[ULTLink](https://ults.world/reguser?aff=oP0kLxXR)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;国内高速中转低倍率大机场，节点包括：港，台，美，新加坡，日本，韩国，澳大利亚，法国，德国，波兰，加拿大，阿拉伯，意大利，巴西，卢森堡，荷兰等。流媒体解锁，月费低至 3块88，畅游互联网，尽享数字时代的无限可能！</p>
+6）<b>[猫熊网络加速器](https://mxwljsq.xyz/auth/register?code=LkNG)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全中转大机场，100+节点，包括港、澳、台、美、日、新、韩、德、印、俄，荷兰，加拿大，巴西，菲律宾，阿根廷，土耳其，泰国，巴基斯坦，印度尼西亚，沙特阿拉伯，澳大利亚，新西兰等原生节点，4K不卡，8K流畅。 流媒体全解锁，并且提供Emby，AppleId, Netflix,porhub高级会员账户共享，注册即可白嫖3天5G流量。</p>
 
-👉 **双11，八折优惠码：11.11，有效期截止：2023/11/15 00:00:00**
-
-👉 https://bit.ly/3FNW7IS
+👉 https://bit.ly/3GJyTmW
 
 7）<b>[OuONetwork](https://board.ouonet.work/reguser?aff=HtVk0Vef)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;稳定中转SS协议不限速大机场，SLA保证。流媒体解锁，节点包括，香港，台湾，日本，美国，英国，德国，新加坡等。不限制设备数量。你最好的 跨越网络伙伴。</p>
