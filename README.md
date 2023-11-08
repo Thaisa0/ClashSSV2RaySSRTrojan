@@ -76,7 +76,7 @@
  >    账号：`wes285207@163.com`        密码：`c0YABP1Szp`
 
 <b>[福利分享](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;福利机场订阅链接，不限时更新，无法保证100%能用。</p>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;免费白嫖机场订阅链接，不限时更新，无法保证100%能用。</p>
 
 👉 https://t.me/budingshibaipiaofenxiang
 
