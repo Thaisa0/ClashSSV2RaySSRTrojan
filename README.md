@@ -109,12 +109,18 @@ clashVerge: https://github.com/zzzgydi/clash-verge/releases
 
 nekoray: https://github.com/MatsuriDayo/nekoray/releases
 
+clash-nyanpasu：https://github.com/keiko233/clash-nyanpasu/releases
+
 4）MAC下推荐可用的客户端
 
 clashVerge: https://github.com/zzzgydi/clash-verge/releases
+
+clash-nyanpasu：https://github.com/keiko233/clash-nyanpasu/releases
 
 5）Linux下推荐可用的客户端
 
 clashVerge: https://github.com/zzzgydi/clash-verge/releases
 
 nekoray: https://github.com/MatsuriDayo/nekoray/releases
+
+clash-nyanpasu：https://github.com/keiko233/clash-nyanpasu/releases
