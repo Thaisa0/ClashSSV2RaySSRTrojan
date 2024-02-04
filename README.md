@@ -54,6 +54,8 @@
 10）<b>[NaiUNet](https://www.naiunet.com/register?aff=hgkMYgrd)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp; 深港IPLC专线SS协议大机场，单线程带宽跑满，节点包括香港，日本，台湾，新加坡，美国，马来西亚，英国，德国，朝鲜，古巴，南极等。Netflix、Disney、ChatGPT、DMM、DAZN、HBO等流媒体全解锁，节点不限速，不限制设备数量，即使在海外也能从海外入口接入，倍率低至 0.2 倍。在购买后六 6 小时内，使用不超过2G流量，无理由退款！买得放心。</p>
 
+👉 **2024龙年春节活动全场 8 折优惠码：2024-20OFF ，促销持续至 2024 年 02 月 16 日！**
+
 👉 https://bit.ly/48vdJGg
 
 ------
