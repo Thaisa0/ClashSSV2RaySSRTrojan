@@ -32,16 +32,23 @@
 6）<b>[MESL](https://in.mesl.cloud/#/register?code=WniLD0Xj)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多地域接入，阿里云、腾讯云、优刻得UDPN 多个 BGP 入口， BGP+IPLC专线传输高端大机场，Netfilx/Hulu/HBO/Disney+/Dazn等流媒体全解锁，线路主打稳定。不限速。8K毫无压力。节点包括，香港、日本、台湾、新加坡、美国、墨西哥、韩国，土耳其、巴西，捷克，摩尔多瓦，瑞士，丹麦，意大利，尼日利亚，阿根廷、德国、法国、英国，卢森堡，埃及，罗马尼亚，巴基斯坦，西班牙，荷兰，智利，俄罗斯，乌克兰，乌兹别克斯坦。支持Windows/Mac/iOS/Android/路由器，支持多设备同时使用。现在注册即可免费试用。 </p>
 
+👉 **春节活动 85 折优惠码：15%OFF ，截止 2024 年 3 月 29 号**
+
 👉 https://bit.ly/45eV67i
 
-7）<b>[Bocchi](https://bocchi.ooo/index.php#/register?code=yv50YPu4)</b>
+7）<b>[Flyint飞数](https://www.flyintpro01.com/#/register?code=rOKCrZ8D)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;老牌高质量SS协议全专线IEPL大机场，服务器0日志记录，性价比高。节点包括，香港，台湾，日本，美国，新加坡，韩国，法国，德国，英国，加拿大，土耳其，阿根廷，墨西哥，澳大利亚，瑞士，马来西亚，菲律宾，泰国，越南，俄罗斯，乌克兰，印度。Netflix，Disney+，HBO，BBC，HULU等流媒体全解锁。提供纯流量包套餐，无到期时间。现在注册除了免费试用，还可获得1元账户余额。</p>
+
+👉 https://bit.ly/3OdB9I3
+
+8）<b>[Bocchi](https://bocchi.ooo/index.php#/register?code=yv50YPu4)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆优质中转线路不限速SS机场，高达 1000Mbps 的速率，4K流畅，8K不卡。节点包括香港，台湾，日本，新加坡，美国，韩国，加拿大，荷兰，阿根廷，土耳其，尼日利亚，德国，英国，南极等。不限制使用设备数，Netflix，hulu，Disney+等多国流媒体解锁。月套餐低至 8 元以下。</p>
 
 👉 **八八折优惠码：13onqlzr**
 
 👉 https://bit.ly/47z83cP
 
-8）<b>[ULTLink](https://ults.world/reguser?aff=oP0kLxXR)</b>
+9）<b>[ULTLink](https://ults.world/reguser?aff=oP0kLxXR)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;国内高速中转低倍率大机场，节点包括：港，台，美，新加坡，日本，韩国，澳大利亚，法国，德国，波兰，加拿大，阿拉伯，意大利，巴西，卢森堡，荷兰等。流媒体解锁，月费低至 3块88，畅游互联网，尽享数字时代的无限可能！</p>
 
 👉 https://bit.ly/3FNW7IS
