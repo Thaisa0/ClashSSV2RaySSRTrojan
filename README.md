@@ -39,19 +39,14 @@
 
 👉 https://bit.ly/3OdB9I3
 
-8）<b>[ULTLink](https://ults.world/reguser?aff=oP0kLxXR)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;国内高速中转低倍率大机场，节点包括：港，台，美，新加坡，日本，韩国，澳大利亚，法国，德国，波兰，加拿大，阿拉伯，意大利，巴西，卢森堡，荷兰等。流媒体解锁，月费低至 3块88，畅游互联网，尽享数字时代的无限可能！</p>
-
-👉 https://bit.ly/3FNW7IS
-
-9）<b>[FScloud](https://123.fscloud.cc/#/register?code=mAMmbdAY)</b>
+8）<b>[FScloud](https://123.fscloud.cc/#/register?code=mAMmbdAY)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;传说中的一元机场，一元即可享受100G流量套餐， Netflix等主流流媒体解锁，节点包括：港，日，新加坡，美国，英国，德国，印度，加拿大，新用户注册可免费试用 3 天100g流量。</p>
 
 👉 **使用最新的协议hysteria2，reality，更好的连接体验，更快的速度冲浪。**
 
 👉 https://bit.ly/3Sg6GeC
 
-10）<b>[魔戒](https://mojie.buzz/#/register?code=rJp1uYUW)</b>
+9）<b>[魔戒](https://mojie.buzz/#/register?code=rJp1uYUW)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;不限速，没有到期时间，不限制人数的，纯流量计费大机场，节点包括日本，台湾，香港，新加坡，韩国，朝鲜，以色列，美国，澳大利亚，柬埔寨，卢森堡，印度，德国，墨西哥，葡萄牙，芬兰，荷兰，英国，加拿大，乌克兰，哈萨克斯坦，土耳其，瑞士，阿根廷，南非，尼日利亚，俄罗斯等。流媒体解锁，价格最低可至 1 元。</p>
 
 👉 https://bit.ly/42dipMM
