@@ -51,6 +51,11 @@
 
 👉 https://bit.ly/42dipMM
 
+10）<b>[大坤场](https://dakunchang.com/#/?code=GvNt9OQD)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全节点最低0.1倍率深港IEPL专线大机场，多种流媒体服务基本全部解锁，ChatGPT服务访问解锁，YouTuBe全天8K，节点包括港，日，美，新加坡，台湾，越南，泰国，韩国，阿联酋，印度等。月租价格最低可至 5 元。</p>
+
+👉 https://bit.ly/3KvDqfa
+
 ------
 
 <b>[TG群组搜索机器人](https://github.com/wantToDoSomeThing/SSSSRV2RayClash)</b>
