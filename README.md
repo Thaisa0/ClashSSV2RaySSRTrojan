@@ -38,8 +38,6 @@
 
 👉 **新用户7.8折优惠码：m78-22off，永久有效**
 
-👉 **2024 618优惠！季付85折优惠码： season85，半年付82折优惠码： halfyear82，年付8折优惠码： year80，有效期：2024/6/14—2024/6/20**
-
 👉 https://bit.ly/3TJ0RYA
 
 7）<b>[To2Network](https://ai.totwo.link/#/register?code=Ppvl8ACQ)</b>
@@ -64,22 +62,6 @@
 10）<b>[Bocchi](https://bocchi.site/#/register?code=yv50YPu4)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆优质中转线路不限速SS机场，高达 1000Mbps 的速率，4K流畅，8K不卡。节点包括香港，台湾，日本，新加坡，美国，韩国，加拿大，荷兰，阿根廷，土耳其，尼日利亚，德国，英国，南极等。不限制使用设备数，Netflix，hulu，Disney+等多国流媒体解锁。</p>
 
-👉 **端午节&618活动：**
-
-👉 **年付最高6折**
-
-👉 **周年庆7.5折优惠码：618-25off（可用于限定套餐） 常规套餐7折优惠码：30%OFF （需年付及以上）**
-
-👉 **618限定套餐： 不限时 / 618G流量 / 折后46.35元 / 如需叠加请发工单**
-
-👉 **618 Pro限定套餐： 不限时 / 1618G流量 / 折后126元 / 如需叠加请发工单**
-
-👉 **618 Pro Max限定套餐： 不限时 / 6180G流量 / 折后463.5元 / 如需叠加请发工单**
-
-👉 **常规套餐： 年付限时七折优惠码：30%OFF Starter / 100G流量 / 折后最低63元/年 Middle / 350G流量 / 折后最低189元/年 Advanced / 600G流量 / 折后最低315元/年 Ultimate / 1024G流量 / 折后最低504元/年**
-
-👉 **优惠码至2024年6月19日0点**
-
 👉 https://bit.ly/3wcLLkw
 
 11）<b>[大坤场](https://dakunchang.com/#/?code=GvNt9OQD)</b>
@@ -94,68 +76,37 @@
 
 👉 https://t.me/soso
 
+<b>[皮卡宝虚拟信用卡官方平台](https://t.me/pikabaobot?start=4e1d545b-4)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;皮卡宝虚拟信用卡，专注海外虚拟信用卡付款，免实名认证，可无限开卡，拥有VISA、MASTER多个国家多个币种卡BIN。店租（Amazon、Shopify、Shope等）、广告（Facebook、Google等）、云服务、游戏、发开者应用、海淘购物等全场景支付。，支持 OpenAi 人工智能 chatGPT PLUS 开通，支持绑定支付宝进行线上消费，支持 开通Telegram飞机会员，支持USDT和人民币充值。</p>
+
+👉 https://bit.ly/4cujw0e
+
 ------
 
-以下是一些推荐使用的客户端：
+分享一些可以很实用的网站，助力遨游海外：
 
-1）Andorid系统下推荐可用的客户端
+1）临时邮箱收验证码：
 
-SS： https://github.com/shadowsocks/shadowsocks-android/releases
+https://temp-mail.org
 
-SSR： https://github.com/HMBSbige/ShadowsocksR-Android/releases
+2）临时手机号，收验证码：
 
-SSRRAY： https://github.com/xxf098/shadowsocksr-v2ray-android/releases
+https://www.materialtools.com/
 
-Matsuri: https://github.com/MatsuriDayo/Matsuri/releases
+https://sms-activate.org/cn
 
-V2RayNG: https://github.com/2dust/v2rayNG/releases
+3）直接粘贴网址下载YouTube视频和字幕，可自己选清晰度和格式：
 
-v2flyNG: https://github.com/2dust/v2flyNG/releases
+https://addyoutube.com/
 
-Surfboard: https://github.com/getsurfboard/surfboard/releases
+4）海外人士追剧国内电影电视剧（国内热播电视剧动漫电影同步更新）：
 
-NekoBoxForAndroid: https://github.com/MatsuriDayo/NekoBoxForAndroid/releases
+https://www.nivod7.com/index.html
 
-2）IOS系统下推荐可用的客户端
+5）小霸王游戏在线玩，童年的回忆：
 
-shaodowrocket: https://apps.apple.com/ca/app/shadowrocket/id932747118
+https://www.yikm.net/
 
-Quantumult: https://apps.apple.com/ca/app/quantumult/id1252015438
+------
 
-Quantumult X: https://apps.apple.com/ca/app/quantumult-x/id1443988620
-
-Surge: https://apps.apple.com/us/app/surge-5/id1442620678
-
-Loon: https://apps.apple.com/ca/app/loon/id1373567447
-
-stash: https://apps.apple.com/ca/app/stash-rule-based-proxy/id1596063349
-
-3）Windows下推荐可用的客户端
-
-SS： https://github.com/shadowsocks/shadowsocks-windows/releases
-
-SSR： https://github.com/HMBSbige/ShadowsocksR-Windows/releases
-
-V2RayN: https://github.com/2dust/v2rayN/releases
-
-clashN: https://github.com/2dust/clashN
-
-clashVerge: https://github.com/zzzgydi/clash-verge/releases
-
-nekoray: https://github.com/MatsuriDayo/nekoray/releases
-
-clash-nyanpasu：https://github.com/keiko233/clash-nyanpasu/releases
-
-4）MAC下推荐可用的客户端
-
-clashVerge: https://github.com/zzzgydi/clash-verge/releases
-
-clash-nyanpasu：https://github.com/keiko233/clash-nyanpasu/releases
-
-5）Linux下推荐可用的客户端
-
-clashVerge: https://github.com/zzzgydi/clash-verge/releases
-
-nekoray: https://github.com/MatsuriDayo/nekoray/releases
-
-clash-nyanpasu：https://github.com/keiko233/clash-nyanpasu/releases
+😊 最后，如果觉得这篇推荐对你有所帮助，那么不妨点一下右上角的 star ⭐️，这将让我更有动力保持更新。💚 感谢你能看到此处 💚。
