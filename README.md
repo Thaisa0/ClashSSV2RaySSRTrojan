@@ -45,10 +45,10 @@
 
 👉 https://bit.ly/3TJ0RYA
 
-8）<b>[To2Network](https://ai.totwo.link/#/register?code=Ppvl8ACQ)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;10G总带宽BGP隧道接入大机场，高SLA可用，含有低倍率节点，不限制IP或设备在线数，有"纯流量"不限时套餐，Netfilx/Disney+/ChatGpt等流媒体稳定解锁，节点包括：台湾，香港，日本，新加坡，韩国，菲律宾，德国，土耳其，肯尼亚，哥伦比亚，埃及，阿根廷，尼日利亚，巴基斯坦，马来西亚，泰国，印度, 印度尼西亚等等。倍率低至 0.3 倍。</p>
+8）<b>[Bocchi](https://bocchi.site/#/register?code=yv50YPu4)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆优质中转线路不限速SS机场，高达 1000Mbps 的速率，4K流畅，8K不卡。节点包括香港，台湾，日本，新加坡，美国，韩国，加拿大，荷兰，阿根廷，土耳其，尼日利亚，德国，英国，南极等。不限制使用设备数，Netflix，hulu，Disney+等多国流媒体解锁。</p>
 
-👉 https://bit.ly/46PptCn
+👉 https://bit.ly/3wcLLkw
 
 9）<b>[Miaona](https://miaona.co/#/register?code=VeKwsak1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;高端全 IEPL 专线，SS协议，4K清晰不卡，8K流畅，流媒体解锁，高速稳定大机场，节点包括，港，台，美，日，新加坡，印度尼西亚，越南，菲律宾，韩国，泰国，柬埔寨，蒙古国，德国，土耳其，法国，阿根廷，尼日利亚等，年付最低可至15.6元/月。</p>
@@ -59,11 +59,6 @@
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netflix，Disney+，Hulu等流媒体和ChatGPT，有纯“流量”套餐，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持。注册即可享受免费试用。</p>
 
 👉 https://bit.ly/454ellh
-
-11）<b>[Bocchi](https://bocchi.site/#/register?code=yv50YPu4)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆优质中转线路不限速SS机场，高达 1000Mbps 的速率，4K流畅，8K不卡。节点包括香港，台湾，日本，新加坡，美国，韩国，加拿大，荷兰，阿根廷，土耳其，尼日利亚，德国，英国，南极等。不限制使用设备数，Netflix，hulu，Disney+等多国流媒体解锁。</p>
-
-👉 https://bit.ly/3wcLLkw
 
 ------
 
