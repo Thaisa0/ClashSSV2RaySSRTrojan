@@ -4,10 +4,10 @@
 
 ------
 
-1）<b>[Godetia](https://ssltd.club/#/register?code=DWZDIVnj)</b>
+1）<b>[Godetia](https://eftj.ssltd.club/#/register?code=DWZDIVnj)</b>
  <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全 G 口 IPLC,SS 协议国际不过墙真实跨境高级专线机场，8 线 BGP 入口，全球内网，原生节点。4K不卡，8K流畅，带宽跑满速。节点包括，香港，台湾，美国，日本，新加坡，韩国，巴基斯坦，英国，德国，澳大利亚，俄罗斯，荷兰，新西兰，巴西，阿根廷，土耳其，菲律宾，泰国，加拿大，埃及，马来西亚，越南，印度尼西亚，西班牙，法国等地区。全地区流媒体Netflix/Disney+/HBO/hulu/Bilibili/HULU/动画疯等全解锁，支持 Chatgpt ，更有沪日，京德，广港，沪韩等游戏节点提供，低延迟、高速。如丝般顺滑。畅游海外。 还有为“海外人士”专供的海外直连套餐，不用绕回国延迟小，畅游全球。</p>
  
-👉 https://bit.ly/3ZlZgrU 
+👉 https://bit.ly/4gUtB9B
 
 2）<b>[猫熊网络加速器](https://mxwljsq.xyz/auth/register?code=LkNG)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全中转大机场，100+节点，包括港、澳、台、美、日、新、韩、德、印、俄，荷兰，加拿大，巴西，菲律宾，阿根廷，土耳其，泰国，巴基斯坦，印度尼西亚，沙特阿拉伯，澳大利亚，新西兰等原生节点，4K不卡，8K流畅。 流媒体全解锁，并且提供Emby，AppleId, Netflix,porhub高级会员账户共享，注册即可白嫖3天5G流量。</p>
