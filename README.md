@@ -27,6 +27,8 @@
 5）<b>[MESL](https://qbwiue.meslcloud.com/#/register?code=WniLD0Xj)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多地域接入，阿里云、腾讯云、优刻得UDPN 多个 BGP 入口， BGP+IPLC专线传输高端大机场，Netfilx/Hulu/HBO/Disney+/Dazn等流媒体全解锁，线路主打稳定。不限速。8K毫无压力。节点包括，香港、日本、台湾、新加坡、美国、墨西哥、韩国，土耳其、巴西，捷克，摩尔多瓦，瑞士，丹麦，意大利，尼日利亚，阿根廷、德国、法国、英国，卢森堡，埃及，罗马尼亚，巴基斯坦，西班牙，荷兰，智利，俄罗斯，乌克兰，乌兹别克斯坦。支持Windows/Mac/iOS/Android/路由器，支持多设备同时使用。现在注册即可免费试用。 </p>
 
+👉 **双11限时 85折 优惠码 15%OFF ，活动时间：即日起至2024/11/12 23:59**
+
 👉 https://bit.ly/476L1M5
 
 6）<b>[CloudFox](https://yunhudy8.xyz/register?code=ytzFxh6a)</b>
@@ -44,12 +46,12 @@
 8）<b>[智连云](https://xinzhilian.xyz/register?code=sWdm0JKC)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netflix，Disney+，Hulu等流媒体和ChatGPT，有纯“流量”套餐，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持。注册即可享受免费试用。</p>
 
-👉 **10月份优惠码, 月/季/半年优惠20%: 1111 ,年付优惠30%:2222 ,不限时10%优惠码: 3333 ,2024/10/01～2024/10/30结束**
-
 👉 https://bit.ly/47oYLBG
 
 9）<b>[Miaona](https://miaona.co/#/register?code=VeKwsak1)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;高端全 IEPL 专线，SS协议，4K清晰不卡，8K流畅，流媒体解锁，高速稳定大机场，节点包括，港，台，美，日，新加坡，印度尼西亚，越南，菲律宾，韩国，泰国，柬埔寨，蒙古国，德国，土耳其，法国，阿根廷，尼日利亚等，年付最低可至15.6元/月。</p>
+
+👉 **双十一活动，全场75折优惠码 241111 ，动结束时间 2024/11/11 23:59**
 
 👉 https://bit.ly/3ugbftg
 
@@ -65,10 +67,12 @@
 
 👉 https://t.me/soso
 
-<b>[PokePay](https://app.pokepay.cc/pages/passport/invitation?r=156443)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;pokepay全球多币种国际支付U卡，零月租，零管理费，ChatGPT、Midjourney、亚马逊、eBay等多场景使用，kyc简单，信息随便填。无需人脸识别，无需上传照片。支持绑定支付宝进行线上消费。卡种有虚拟卡（Visa & Master）：即开即用，多场景丝滑体验。也有实物卡（Visa）：刷卡、ATM取现、绑定支付，大额消费都行。在线USDT充值，轻松解决海外支付难题。7*24小时，全球客服。随时支持。</p>
+<b>[银河录像局](https://nf.video/6AJcu)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;购买海外平台会员且已95折优惠价格购买。可购买，YouTube，Netflix，Disineyplus，多邻国，chatgpt，office365，Midjourney ，Cloude，Spotify，Photoshop，AppleID，AppleOne，AppleTV，ICloud，Hbo, PrimeVodeo等等会员。</p>
 
-👉 https://bit.ly/4eeHm1k
+👉 **注册链接 + 一个优惠码：使用注册链接享受97折 + 优惠码才可享95折，优惠码：xiaofc**
+
+👉 https://bit.ly/3YKFJmy
 
 ------
 
