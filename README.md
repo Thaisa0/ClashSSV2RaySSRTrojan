@@ -59,10 +59,10 @@
 
 👉 https://bit.ly/3ugbftg
 
-10）<b>[Bocchi](https://bocchi.site/#/register?code=yv50YPu4)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆优质中转线路不限速SS机场，高达 1000Mbps 的速率，4K流畅，8K不卡。节点包括香港，台湾，日本，新加坡，美国，韩国，加拿大，荷兰，阿根廷，土耳其，尼日利亚，德国，英国，南极等。不限制使用设备数，Netflix，hulu，Disney+等多国流媒体解锁。</p>
+10）<b>[抖云加速](https://douyun.biz/#/register?code=BwJyTE2t)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SS全隧道加密 5 年老店大机场，3G带宽负载，节点不限速。地区包括香港、台湾、日本、狮城、美国、韩国、泰国、印度、印尼、越南、迪拜、澳洲、荷兰、应该、德国、法国、瑞典、蒙古、智利、南非、丹麦、巴西、挪威、以色列、西班牙、俄罗斯、乌克兰、奥地利、加拿大、意大利、土耳其、墨西哥、马来西亚、哥伦比亚、尼日利亚、阿布扎比等。Netflix，Disney+等流媒体，Chatgpt全解锁。</p>
 
-👉 https://bit.ly/3wcLLkw
+👉 https://bit.ly/3VyD12j
 
 ------
 
