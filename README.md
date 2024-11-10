@@ -4,22 +4,22 @@
 
 ------
 
-1）<b>[CloudFox](https://yunhudy8.xyz/register?code=ytzFxh6a)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;千兆峰值速率的SS协议高端大机场，IPLC中转线路，节点包括：港，日，台，美，新加坡，韩国，加拿大，土耳其，澳大利亚，荷兰，印度，英国，法国，墨西哥，巴西等。Netflix、Chat GPT、Youtube、Abema TV、 Disney+等流媒体全解锁，支持使用ChatGPT，有“不限时流量包”套餐，无时间限制，流量用完为止。并可配置中转静态住宅IP，定制独享原生节点IP，助力TikTok运营、直播服务、跨境电商，Twitter与Facebook专线。现在注册即可 免费试用 1 小时。</p>
+1）<b>[MESL](https://qbwiue.meslcloud.com/#/register?code=WniLD0Xj)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多地域接入，阿里云、腾讯云、优刻得UDPN 多个 BGP 入口， BGP+IPLC专线传输高端大机场，Netfilx/Hulu/HBO/Disney+/Dazn等流媒体全解锁，线路主打稳定。不限速。8K毫无压力。节点包括，香港，澳门，日本，台湾， 新加坡，美国, 蒙古，韩国，朝鲜，印度，印度尼西亚，越南，菲律宾，柬埔寨，马来西亚，泰国，哥伦比亚，缅甸，孟加拉国，尼泊尔，澳大利亚，新西兰，加拿大，墨西哥，巴西，智利，阿根廷，秘鲁，玻利维亚，德国，英国，法国，荷兰，新西兰，爱尔兰，意大利，卢森堡，瑞士，丹麦，芬兰，瑞典，挪威，奥地利，捷克，冰岛，土耳其，比利时，葡萄牙，波兰，爱沙尼亚，匈牙利，俄罗斯，乌克兰，摩尔多瓦，罗马尼亚，保加利亚，塞尔维亚，希腊，以色列，伊朗，多哥，埃及，约旦，迪拜，沙特阿拉伯，阿曼，乌兹别克斯坦，巴基斯坦，哈萨克斯坦，尼日利亚，安哥拉，南非，南极等数十个国家和地区。支持Windows/Mac/iOS/Android/路由器，支持多设备同时使用。现在注册即可免费试用。 </p>
 
-👉 https://bit.ly/4h1irQH
+👉 **双11限时 85折 优惠码 15%OFF ，活动时间：即日起至2024/11/12 23:59**
+
+👉 https://bit.ly/476L1M5
 
 2）<b>[猫熊网络加速器](https://mxwljsq.xyz/auth/register?code=LkNG)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全中转大机场，100+节点，包括港、澳、台、美、日、新、韩、德、印、俄，荷兰，加拿大，巴西，菲律宾，阿根廷，土耳其，泰国，巴基斯坦，印度尼西亚，沙特阿拉伯，澳大利亚，新西兰等原生节点，4K不卡，8K流畅。 流媒体全解锁，并且提供Emby，PornEmby服务以及AppleId,porhub高级会员账户共享，注册即可白嫖3天5G流量。</p>
 
 👉 https://bit.ly/3GJyTmW
 
-3）<b>[MESL](https://qbwiue.meslcloud.com/#/register?code=WniLD0Xj)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;多地域接入，阿里云、腾讯云、优刻得UDPN 多个 BGP 入口， BGP+IPLC专线传输高端大机场，Netfilx/Hulu/HBO/Disney+/Dazn等流媒体全解锁，线路主打稳定。不限速。8K毫无压力。节点包括，香港，澳门，日本，台湾， 新加坡，美国, 蒙古，韩国，朝鲜，印度，印度尼西亚，越南，菲律宾，柬埔寨，马来西亚，泰国，哥伦比亚，缅甸，孟加拉国，尼泊尔，澳大利亚，新西兰，加拿大，墨西哥，巴西，智利，阿根廷，秘鲁，玻利维亚，德国，英国，法国，荷兰，新西兰，爱尔兰，意大利，卢森堡，瑞士，丹麦，芬兰，瑞典，挪威，奥地利，捷克，冰岛，土耳其，比利时，葡萄牙，波兰，爱沙尼亚，匈牙利，俄罗斯，乌克兰，摩尔多瓦，罗马尼亚，保加利亚，塞尔维亚，希腊，以色列，伊朗，多哥，埃及，约旦，迪拜，沙特阿拉伯，阿曼，乌兹别克斯坦，巴基斯坦，哈萨克斯坦，尼日利亚，安哥拉，南非，南极等数十个国家和地区。支持Windows/Mac/iOS/Android/路由器，支持多设备同时使用。现在注册即可免费试用。 </p>
+3）<b>[CloudFox](https://yunhudy8.xyz/register?code=ytzFxh6a)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;千兆峰值速率的SS协议高端大机场，IPLC中转线路，节点包括：港，日，台，美，新加坡，韩国，加拿大，土耳其，澳大利亚，荷兰，印度，英国，法国，墨西哥，巴西等。Netflix、Chat GPT、Youtube、Abema TV、 Disney+等流媒体全解锁，支持使用ChatGPT，有“不限时流量包”套餐，无时间限制，流量用完为止。并可配置中转静态住宅IP，定制独享原生节点IP，助力TikTok运营、直播服务、跨境电商，Twitter与Facebook专线。现在注册即可 免费试用 1 小时。</p>
 
-👉 **双11限时 85折 优惠码 15%OFF ，活动时间：即日起至2024/11/12 23:59**
-
-👉 https://bit.ly/476L1M5
+👉 https://bit.ly/4h1irQH
 
 4）<b>[FlowerCloud](https://flowercloud.net/aff.php?aff=318)</b>
  <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全中转国际专线传输高端SS,trojan大机场，三大运营商链接专项优化，广港，沪日，京德专线，华为云入口，多种流媒体服务访问解锁。原生节点，地区包括，港，日，台，美，韩国，新加坡，乌克兰，意大利，摩尔多瓦，匈牙利，西班牙，土耳其，德国，英国，荷兰，法国，加拿大，阿根廷，巴西，智利，澳大利亚，新西兰，印度尼西亚，泰国，越南，印度，巴基斯坦，以色列，阿联酋，菲律宾，马来西亚，埃及等。节点倍率，低至 0.2 倍。</p>
