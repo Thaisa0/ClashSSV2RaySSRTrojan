@@ -91,6 +91,30 @@
 
 ------
 
+<b>[EFCloud订阅白嫖]</b>
+
+https://fctahfbxlk.eastasia.cloudapp.azure.com/queue/list?token=4d80677e2b1c700cbf3b1841099a1ab0
+
+<b>[BerylCloud订阅白嫖]</b>
+
+http://199.180.115.130/api/v1/client/subscribe?token=930c56b0dc6370989243417403372adf
+
+<b>[Naiunet订阅白嫖]</b>
+
+https://times1730429260.subtangniu.top:9606/v2b/naiu/api/v1/client/subscribe?token=6425d5e43557bca8926deb8b8e964fc9
+
+<b>[Flyint订阅白嫖]</b>
+
+https://sub01.subflynode.com/api/v1/client/subscribe?token=9a04f674721f7c371bcd0347465e7a1b
+
+<b>[crunchyroll （北美最大的动漫流媒体，中文字幕较少）会员]</b>
+
+|    官网    |  账号   |  密码  |
+|  :---------------------: | :---------------------: |  :---------------------: |
+|   https://www.crunchyroll.com   |   vcddlemox@tutamail.com  |   MVJ8xeb@zeq9pnv3xez    |
+
+------
+
 分享一些可以很实用的网站，助力遨游海外：
 
 1）临时邮箱收验证码：
