@@ -58,10 +58,14 @@
 
 👉 https://bit.ly/3ADfHZp
 
-9）<b>[CloudFox](https://yunhudy8.xyz/register?code=ytzFxh6a)</b>
-<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;千兆峰值速率的SS协议高端大机场，IPLC中转线路，节点包括：港，日，台，美，新加坡，韩国，加拿大，土耳其，澳大利亚，荷兰，印度，英国，法国，墨西哥，巴西等。Netflix、Chat GPT、Youtube、Abema TV、 Disney+等流媒体全解锁，支持使用ChatGPT，有“不限时流量包”套餐，无时间限制，流量用完为止。并可配置中转静态住宅IP，定制独享原生节点IP，助力TikTok运营、直播服务、跨境电商，Twitter与Facebook专线。现在注册即可 免费试用 1 小时。</p>
+9）<b>[动力港](https://site03.dongligang.me/#/register?code=xUcZ8i2L)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆优质中转线路不限速SS具性价比的机场，秒开-4K视频，8K不卡。节点包括香港，台湾，日本，新加坡，美国，英国，瑞士，荷兰，土耳其等。不限-设备数量和每日用量，Netflix，hulu，Disney+等多国流媒体解锁，开放-ChatGPT Copilot等AI服务。提供“不限时纯流量套餐”</p>
 
-👉 https://bit.ly/4h1irQH
+👉 **限量5000份200GB不限速套餐免费领取，护卫舰-免费套餐使用优惠码：小爽一下 ，即可 0 元白嫖一个月200G流量，先到先得**
+
+👉 **5折年付优惠券：50%off ，55折季/半年付优惠券：45%off ，6折月付优惠券：40%off**
+
+👉 https://bit.ly/3YFoSjW
 
 10）<b>[HaloCloud](https://cloud.halo.do/#/auth/signup;referral=nmxKiD0h)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SS协议的高端专线机场，三网IEPL专线接入和低倍率国内中转线路，可用总带宽超10G。流媒体Netflix，DIsney+等都解锁，支持chatgpt。，港、台、日、新、美、 越南、泰国、马来西亚、 澳大利亚、英国、芬兰、加拿大、乌克兰、土耳其、罗马尼亚、 巴基斯坦等主流地区落地，不限制设备数和网络速度。中转计划提供中转+广移IEPL，专线计划提供三网IEPL+低倍率中转+沪日IPLC线路。节点低倍率低至0.5倍。高峰期4K流畅，8K不卡。</p>
@@ -94,15 +98,10 @@
 
 👉 https://bit.ly/3wcLLkw
 
-15）<b>[动力港](https://site03.dongligang.me/#/register?code=xUcZ8i2L)</b>
+15）<b>[CloudFox](https://yunhudy8.xyz/register?code=ytzFxh6a)</b>
+<p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;千兆峰值速率的SS协议高端大机场，IPLC中转线路，节点包括：港，日，台，美，新加坡，韩国，加拿大，土耳其，澳大利亚，荷兰，印度，英国，法国，墨西哥，巴西等。Netflix、Chat GPT、Youtube、Abema TV、 Disney+等流媒体全解锁，支持使用ChatGPT，有“不限时流量包”套餐，无时间限制，流量用完为止。并可配置中转静态住宅IP，定制独享原生节点IP，助力TikTok运营、直播服务、跨境电商，Twitter与Facebook专线。现在注册即可 免费试用 1 小时。</p>
 
- <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆优质中转线路不限速SS具性价比的机场，秒开-4K视频，8K不卡。节点包括香港，台湾，日本，新加坡，美国，英国，瑞士，荷兰，土耳其等。不限-设备数量和每日用量，Netflix，hulu，Disney+等多国流媒体解锁，开放-ChatGPT Copilot等AI服务。</p>
-
-👉 **限量5000份200GB不限速套餐免费领取，护卫舰-免费套餐使用优惠码：小爽一下 ，即可 0 元白嫖一个月200G流量，先到先得**
-
-👉 **5折年付优惠券：50%off ，55折季/半年付优惠券：45%off ，6折月付优惠券：40%off**
-
-👉 https://bit.ly/3YFoSjW
+👉 https://bit.ly/4h1irQH
 
 16）<b>[FScloud](https://123.fscloud.cc/#/register?code=mAMmbdAY)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;传说中的一元机场，一元即可享受100G流量套餐， Netflix等主流流媒体解锁，节点包括：港，日，新加坡，美国，英国，德国，印度，加拿大，新用户注册可免费试用 3 天100g流量。</p>
@@ -111,10 +110,10 @@
 
 👉 https://bit.ly/3Sg6GeC
 
-17）<b>[魔戒](https://mojie.info/#/register?code=rJp1uYUW)</b>
+17）<b>[魔戒](https://hkm.cdn-source.com/register?aff=rJp1uYUW)</b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;不限速，没有到期时间，不限制人数的，纯流量计费大机场，节点包括日本，台湾，香港，新加坡，韩国，朝鲜，以色列，美国，澳大利亚，柬埔寨，卢森堡，印度，德国，墨西哥，葡萄牙，芬兰，荷兰，英国，加拿大，乌克兰，哈萨克斯坦，土耳其，瑞士，阿根廷，南非，尼日利亚，俄罗斯等。流媒体解锁，价格最低可至 1 元。</p>
 
-👉 https://bit.ly/3Lc1GU9
+👉 https://bit.ly/3AQH02i
 
 18）<b>[FlowerCloud](https://flowercloud.net/aff.php?aff=318)</b>
  <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全中转国际专线传输高端SS,trojan大机场，三大运营商链接专项优化，广港，沪日，京德专线，华为云入口，多种流媒体服务访问解锁。原生节点，地区包括，港，日，台，美，韩国，新加坡，乌克兰，意大利，摩尔多瓦，匈牙利，西班牙，土耳其，德国，英国，荷兰，法国，加拿大，阿根廷，巴西，智利，澳大利亚，新西兰，印度尼西亚，泰国，越南，印度，巴基斯坦，以色列，阿联酋，菲律宾，马来西亚，埃及等。节点倍率，低至 0.2 倍。</p>
