@@ -16,10 +16,10 @@
 
 👉 https://bit.ly/4h1irQH
 
-3）<b>[Godetia](https://eftj.ssltd.club/#/register?code=DWZDIVnj)</b>
+3）<b>[Godetia](https://ssltd.club/#/register?code=DWZDIVnj)</b>
  <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全 G 口 IPLC,SS 协议国际不过墙真实跨境高级专线机场，8 线 BGP 入口，全球内网，原生节点。4K不卡，8K流畅，带宽跑满速。节点包括，香港，台湾，美国，日本，新加坡，韩国，巴基斯坦，英国，德国，澳大利亚，俄罗斯，荷兰，新西兰，巴西，阿根廷，土耳其，菲律宾，泰国，加拿大，埃及，马来西亚，越南，印度尼西亚，西班牙，法国等地区。全地区流媒体Netflix/Disney+/HBO/hulu/Bilibili/HULU/动画疯等全解锁，支持 Chatgpt ，更有沪日，京德，广港，沪韩等游戏节点提供，低延迟、高速。如丝般顺滑。畅游海外。 还有为“海外人士”专供的海外直连套餐，不用绕回国延迟小，畅游全球。</p>
  
-👉 https://bit.ly/4gUtB9B
+👉 https://bit.ly/3ZlZgrU
 
 4）<b>[FlowerCloud](https://flowercloud.net/aff.php?aff=318)</b>
  <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全中转国际专线传输高端SS,trojan大机场，三大运营商链接专项优化，广港，沪日，京德专线，华为云入口，多种流媒体服务访问解锁。原生节点，地区包括，港，日，台，美，韩国，新加坡，乌克兰，意大利，摩尔多瓦，匈牙利，西班牙，土耳其，德国，英国，荷兰，法国，加拿大，阿根廷，巴西，智利，澳大利亚，新西兰，印度尼西亚，泰国，越南，印度，巴基斯坦，以色列，阿联酋，菲律宾，马来西亚，埃及等。节点倍率，低至 0.2 倍。</p>
