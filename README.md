@@ -39,6 +39,8 @@
 <b><h2>7）[智连云](https://xinzhilian.xyz/register?code=sWdm0JKC)</h2></b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转高速稳定，低延时线路，4K视频秒载，解锁Netflix，Disney+，Hulu等流媒体和ChatGPT，有纯“流量”套餐，节点地区包括：港，新加坡，日本，台湾，美国，英国，法国，荷兰，越南等。24小时快速工单支持。注册即可享受免费试用。</p>
 
+<h3>👉 月/季/半年优惠20%: 1111 ,年付优惠30%:2222 ,不限时10%优惠码: 3333 ,2024/12/01～2024/12/31结束</h3>
+
 <h3>👉 https://bit.ly/47oYLBG</h3>
 
 <b><h2>8）[Miaona](https://miaona.co/#/register?code=VeKwsak1)</h2></b>
