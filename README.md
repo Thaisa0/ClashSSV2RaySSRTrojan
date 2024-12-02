@@ -23,12 +23,12 @@
 
 <h3>👉 https://bit.ly/3CAQkIl</h3>
 
-<b><h2>4）[动力港](https://site03.dongligang.me/#/register?code=xUcZ8i2L)</h2></b>
+<b><h2>4）[动力港](https://dkwi2-80432.dongligang.xyz/#/register?code=xUcZ8i2L)</h2></b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆优质中转线路不限速SS具性价比的机场，秒开-4K视频，8K不卡。节点包括香港，台湾，日本，新加坡，美国，英国，瑞士，荷兰，土耳其等。不限-设备数量和每日用量，Netflix，hulu，Disney+等多国流媒体解锁，开放-ChatGPT Copilot等AI服务。提供“不限时纯流量套餐”</p>
 
 <h3>👉 5折年付优惠券：50%off ，55折季/半年付优惠券：45%off ，6折月付优惠券：40%off ， 5折一次性流量优惠券码：爽歪歪</h3>
 
-<h3>👉 官网地址：https://bit.ly/3YFoSjW</h3>
+<h3>👉 官网地址：https://bit.ly/3VhZhNk</h3>
 
 <b><h2>5）[BestVPN](https://invite.invitevp.com/#/register?code=N5xQ5OsP)</h2></b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;独家Hysteria和Hysteria2协议，不限速，无审计,高速专线大机场， 不限时全部"纯流量"套餐，无月付季付年付，用多少算多少直到用完，节点包括：香港，台湾，日本，新加坡，美国，韩国，越南，俄罗斯，英国，印度，德国，英国，阿联酋，澳大利亚，加拿大，南非，瑞士，法国，荷兰，阿根廷，西班牙，瑞士，智利，意大利，墨西哥，以色列，巴西，土耳其。Netflix，Hulu，Disney+，Paramount等流媒体全解锁。解锁chatgpt。不限制设备数，遇到问题还有远程协助与微信客服帮助。解除使用后顾之忧，实在是翻墙冲浪，必备机场。</p>
