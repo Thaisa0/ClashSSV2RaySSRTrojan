@@ -2,6 +2,10 @@
 
 自己长期使用了好几年的机场，且都亲自测试过，目前一直都在用的机场分享一下,可以自己用，也可以互相分享：
 
+机场纯小白？[新手教程戳这里](https://github.com/Thaisa0/ClashSSV2RaySSRTrojan/blob/main/content/content.md)
+
+找不到工具？（Android/IOS/鸿蒙/Windows/Mac/Linux科学上网客户端：[科学上网客户端](https://github.com/Thaisa0/ClashSSV2RaySSRTrojan/blob/main/content/%E5%AE%A2%E6%88%B7%E7%AB%AF%E4%B8%8B%E8%BD%BD/kehuduan.md))
+
 ------
 
 <b><h2>1）[Godetia](https://qdfgj.godetiass.store/#/register?code=DWZDIVnj)</h2></b>
