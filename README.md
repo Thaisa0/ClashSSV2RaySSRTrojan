@@ -41,6 +41,8 @@
 <b><h2>6）[HaloCloud](https://cloud.halo.do/#/auth/signup;referral=nmxKiD0h)</h2></b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SS协议的高端专线机场，三网IEPL专线接入和低倍率国内中转线路，可用总带宽超10G。流媒体Netflix，DIsney+等都解锁，支持chatgpt。，港、台、日、新、美、 越南、泰国、马来西亚、 澳大利亚、英国、芬兰、加拿大、乌克兰、土耳其、罗马尼亚、 巴基斯坦等主流地区落地，不限制设备数和网络速度。中转计划提供中转+广移IEPL，专线计划提供三网IEPL+低倍率中转+沪日IPLC线路。节点低倍率低至0.5倍。高峰期4K流畅，8K不卡。</p>
 
+<h3>👉 9折优惠码： EXTRA10 ，优惠时间：即日起至2025年2月1日。</h3>
+
 <h3>👉 官网地址：https://bit.ly/3A8mJ88</h3>
 
 <b><h2>7）[智连云](https://xinzhilian.xyz/register?code=sWdm0JKC)</h2></b>
