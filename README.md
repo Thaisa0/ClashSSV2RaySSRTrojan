@@ -21,11 +21,6 @@
 <b><h2>3）[秒连云](https://mly03-1111.miaolianyun.my/#/register?code=6BTFtic3)</h2></b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;全大陆中转不限速大机场， 节点包括：香港，台湾，日本，新加坡，美国等。Netflix，Hulu，Disney+，Paramount等流媒体全解锁。解锁chatgpt。不限制设备数。<strong>月费低至 5 块</strong>，</p>
 
-<h3>👉 元旦优惠 时间：即时-2025年1月20日23:59</h3>
-<h3>👉 80折优惠码：MLY-80 购买月付/不限时使用 （5元套餐不参与）</h3>
-<h3>👉 75折优惠码：MLY-75 购买半年付使用</h3>
-<h3>👉 68折优惠码：MLY-68 购买 年付使用</h3>
-
 <h3>👉 官网地址：https://bit.ly/4gAutzh</h3>
 
 <b><h2>4）[动力港](https://dkwi2-80432.dongligang.xyz/#/register?code=xUcZ8i2L)</h2></b>
@@ -41,7 +36,11 @@
 <b><h2>6）[HaloCloud](https://cloud.halo.do/#/auth/signup;referral=nmxKiD0h)</h2></b>
 <p>&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;SS协议的高端专线机场，三网IEPL专线接入和低倍率国内中转线路，可用总带宽超10G。流媒体Netflix，DIsney+等都解锁，支持chatgpt。，港、台、日、新、美、 越南、泰国、马来西亚、 澳大利亚、英国、芬兰、加拿大、乌克兰、土耳其、罗马尼亚、 巴基斯坦等主流地区落地，不限制设备数和网络速度。中转计划提供中转+广移IEPL，专线计划提供三网IEPL+低倍率中转+沪日IPLC线路。节点低倍率低至0.5倍。高峰期4K流畅，8K不卡。</p>
 
-<h3>👉 9折优惠码： EXTRA10 ，优惠时间：即日起至2025年2月1日。</h3>
+<h3>👉 购买任何套餐半年，免费赠送一个月；购买一年，额外赠送两个月。活动时间：1月20日 - 2月1日。购买套餐后发工单申请。</h3>
+
+<h3>👉 春节 8 折优惠码： HappyNewYear ，活动日期：1月20日 - 2月10日。</h3>
+
+<h3>👉 Halo Media 影院营，拥有高达700TB的硬盘存储。所有用户皆可享受国际优化线路，畅快直连，看遍全球精彩视频。</h3>
 
 <h3>👉 官网地址：https://bit.ly/3A8mJ88</h3>
 
