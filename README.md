@@ -17,7 +17,6 @@
 - **流媒体全解锁**：支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯、Crunchyroll、Abema、DMM等主流流媒体，让你畅享海量高清视频。，满足高端用户严苛需求。
 - **独有特色**：独家保障新疆地区，支持 Windows/Mac/iOS/Android/路由器，多设备同时使用.
 - **专属福利**：注册即享 **3 天免费体验**（“白嫖”福利）。
-- **优惠活动**：春节期间享 85 折（优惠码：`15%OFF`，活动至 2025/02/14 23:59）。
 - [👉 官网地址](https://bit.ly/476L1M5)
 
 ### 2）[猫熊网络加速器](https://mxwljsq.xyz/auth/register?code=LkNG)
