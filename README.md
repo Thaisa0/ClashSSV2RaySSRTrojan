@@ -108,7 +108,7 @@
 
 这里再推荐一些我亲自使用过、效果显著的辅助工具和平台，助你更高效便捷地享受海外网络资源：
 
-- **[crunchyroll](www.crunchyroll.com)**  
+- **[Crunchyroll](www.crunchyroll.com)**  
   Crunchyroll 是一个专注于动漫、亚洲影视剧和相关内容的流媒体平台，尤其以提供日本动漫（动画）为主。它成立于2006年，总部位于美国，是全球最受欢迎的动漫流媒体服务之一！
 
   **登录名：vcddlemox@tutamail.com**
