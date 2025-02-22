@@ -90,6 +90,12 @@
 - **节点地区**：香港，台湾，日本，新加坡，美国，英国，瑞士，荷兰，土耳其等。
 - **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。
 - **超值套餐**：提供 **不限时纯流量一次性套餐**，随用随付，经济实惠！
+- **优惠活动**：**长期有效**
+  - 6折一次性流量优惠券码： `40%off`
+  - 65折年付优惠券码： `35%off`
+  - 7折季/半年付优惠券码： `30%off`
+  - 75折月付优惠券码： `25%off`
+
 - [👉 官网地址](https://bit.ly/3VhZhNk)
 
 ### 10）[HaloCloud](https://cloud.halo.do/#/auth/signup;referral=nmxKiD0h)
