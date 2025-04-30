@@ -71,14 +71,14 @@
   - 不限时套餐优惠 10%（优惠码：`3333`）。
 - [👉 官网地址](https://bit.ly/47oYLBG)
 
-### 5）[千速喵Tsmeow](https://tmsreta.top/zh/#/auth/signup;referral=IoX959wk)
-- **核心优势**：全大陆优质中转线路，不限速 SS 机场，确保 4K 视频秒开、8K 超清不卡顿.
-- **节点地区**：香港，台湾，日本，新加坡，美国，英国，瑞士，越南，意大利，韩国，西班牙，印度，德国，马来西亚，巴西，加拿大，俄罗斯，乌克兰，泰国，土耳其等。
+### 5）[随心飞](https://www.suixinfei.co/auth/signup?referrer=lZCDAw1W)
+- **核心优势**：采用优质中转广移沪移线路，SS 协议大机场，确保节点全 1 倍率、无限速体验，让你在国内也能享受国际级网络表现。
+- **节点地区**：香港，澳门，日本，台湾，新加坡，美国，韩国，英国，越南，印度尼西亚，马来西亚，缅甸，老挝，柬埔寨，泰国，菲律宾，印度等。
 - **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。
 - **超值套餐**：提供 **不限时纯流量一次性套餐**，随用随付，经济实惠！
 - **优惠活动**：
-  - 五一月付 / 季付 / 一次性套餐 85折 优惠（优惠码：`51meow`，有效期至2025年05月05日）。
-- [👉 官网地址](https://bit.ly/4b5uYzO)
+  - 年付优惠20%（优惠码：`9999`）。
+- [👉 官网地址](https://www.suixinfei.co/auth/signup?referrer=lZCDAw1W)
 
 ### 6）[淘气兔](https://taoqitu.me/index.html?register=OdyZEGNV)
 - **核心优势**：全大陆中转不限速大机场，覆盖等，轻松解锁全球主流影视内容！
@@ -130,6 +130,20 @@
 - **流媒体解锁**：解锁Netflix、Disney+、Hulu等主流流媒体，轻松解锁全球影视内容。 解锁 ChatGPT。
 - **超低价格**：价格低至 1 元，让你轻松尝鲜高品质网络体验！
 - [👉 官网地址](https://bit.ly/3AQH02i)
+
+### 11）[秒连云](https://mly03-1111.miaolianyun.my/#/register?code=6BTFtic3)
+- **核心优势**：全大陆中转不限速大机场，支持香港、台湾、日本、新加坡、美国等关键节点，确保稳定可靠的网络连接.
+- **节点地区**：包括香港，台湾，日本，新加坡，美国，奥地利，以色列，荷兰，冰岛，瑞士，法国，瑞典，巴西，加拿大，匈牙利，英国，印度尼西亚，韩国，俄罗斯，印度，智利等。
+- **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT，多设备同时使用无限制。
+- **超值套餐**：提供 **不限时纯流量一次性套餐**，随用随付，经济实惠！
+- [👉 官网地址](https://mly03-1111.miaolianyun.my/#/register?code=6BTFtic3)
+
+### 12）[Bocchi](https://haruka.bocchi.ooo/#/register?code=yv50YPu4)
+- **核心优势**：拥有 30+ 全球各国节点，采用高纯净家宽 IP，打造无限速 SS 机场，速率最高可达 2Gbps，确保全场景流畅体验。
+- **节点地区**：香港，日本，台湾，美国，新加坡，韩国，阿根廷，英国，尼日利亚，荷兰，加拿大，德国等。
+- **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。
+- **安全保障**：所有服务器均无日志运行，多客户端支持，配套详尽教程，专为新手设计，操作简单易上手
+- [👉 官网地址](https://haruka.bocchi.ooo/#/register?code=yv50YPu4)
 
 ---
 
