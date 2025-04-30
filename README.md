@@ -32,6 +32,8 @@
 - **流媒体全解锁**：支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯、Crunchyroll、Abema、DMM等主流流媒体，让你畅享海量高清视频。，满足高端用户严苛需求。
 - **独有特色**：独家保障新疆地区，支持 Windows/Mac/iOS/Android/路由器，多设备同时使用.
 - **专属福利**：注册即享 **3 天免费体验**（“白嫖”福利）。
+- **优惠活动**：
+  - 五一享全场 85 折（优惠码：`15%OFF`，有效期至2025年05月06日 23:59:59）。
 - [👉 官网地址](https://bit.ly/476L1M5)
 
 ### 2）[AIFUN](https://dash.afun.la/register?code=O023jSpg)
@@ -40,6 +42,14 @@
 - **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT，多设备同时使用无限制。
 - **超值套餐**：提供0.2倍率节点，EMBY流媒体体验。提供游戏节点，10X倍率为电信联通双线BGP不限速，20X倍率为三线BGP，限速10Mbps每人，保证游戏稳定性。
 - **新用户福利**：注册即享 **3 天免费体验**！
+- **长期优惠活动**：
+  - 套餐 95 折（优惠码：`95Zhe`）。
+- **优惠活动**：
+  - 五一月付9折（优惠码：`20255190`）。
+  - 五一季付88折（优惠码：`20255188`）。
+  - 五一半年付85折（优惠码：`20255185`）。
+  - 五一年付8折（优惠码：`20255180`）。
+  - 直至2025/5/5日结束。
 - [👉 官网地址](https://bit.ly/417uzIy)
 
 ### 3）[抖云加速](https://douyun.sbs/#/register?code=BwJyTE2t)
@@ -55,6 +65,10 @@
 - **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。
 - **超值套餐**：有“纯流量”套餐，年付低至仅需 35 元。满足各类用户需求。
 - **新用户福利**：注册即享 **免费白嫖体验**，零风险试用高品质服务！
+- **优惠活动**：
+  - 季付/半年付优惠 20%（优惠码：`1111`）。
+  - 年付优惠 30%（优惠码：`2222`）。
+  - 不限时套餐优惠 10%（优惠码：`3333`）。
 - [👉 官网地址](https://bit.ly/47oYLBG)
 
 ### 5）[千速喵Tsmeow](https://tmsreta.top/zh/#/auth/signup;referral=IoX959wk)
@@ -62,6 +76,8 @@
 - **节点地区**：香港，台湾，日本，新加坡，美国，英国，瑞士，越南，意大利，韩国，西班牙，印度，德国，马来西亚，巴西，加拿大，俄罗斯，乌克兰，泰国，土耳其等。
 - **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。
 - **超值套餐**：提供 **不限时纯流量一次性套餐**，随用随付，经济实惠！
+- **优惠活动**：
+  - 五一月付 / 季付 / 一次性套餐 85折 优惠（优惠码：`51meow`，有效期至2025年05月05日）。
 - [👉 官网地址](https://bit.ly/4b5uYzO)
 
 ### 6）[淘气兔](https://taoqitu.me/index.html?register=OdyZEGNV)
@@ -69,6 +85,9 @@
 - **节点地区**：包括香港，台湾，日本，新加坡，美国，马来西亚，俄罗斯，英国，西班牙，土耳其等。
 - **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。
 - **无限流量**：提供 **不限时“纯流量”套餐**，无月付、季付或年付限制，用多少算多少，月费低至 7.8 元，让你尽享无限畅游.
+- **优惠活动**：
+  - 五一月付、半年付、年付专属特惠（优惠码：`51@90`）。
+  - 活动截止：2025年5月5日 23:00
 - [👉 官网地址](https://bit.ly/4fivvyN)
 
 ### 7）[动力港](https://dkwi2-80432.dongligang.xyz/#/register?code=xUcZ8i2L)
@@ -89,6 +108,13 @@
 - **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT，确保无论何时何地都能享受 4K 流畅、8K 超清体验.。
 - **专属福利**：
   - Halo Media 影院营提供 700TB 硬盘存储，直连国际优化线路，观赏全球精彩视频！
+- **新户优惠活动**：
+  - 新用户九折优惠(优惠码：`EXTRA10`)
+- **优惠活动**：
+  - 五一8折优惠活动(优惠码：`SALE20`)
+  - 购买 「半年付」 套餐，额外加赠 1 个月的可用流量
+  - 购买 「年付」 套餐，额外加赠 2 个月的可用流量
+  - 即日起至 2025 年 5 月 10 日
 - [👉 官网地址](https://bit.ly/3A8mJ88)
 
 ### 9）[FScloud](https://dash.fscloud.homes/#/register?code=mAMmbdAY)
