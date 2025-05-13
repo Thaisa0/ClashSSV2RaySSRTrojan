@@ -95,43 +95,19 @@
   - 75折月付优惠券码： `25%off`
 - [👉 官网地址](https://bit.ly/3VhZhNk)
 
-### 8）[HaloCloud](https://cloud.halo.do/#/auth/signup;referral=nmxKiD0h)
-- **核心优势**：采用 SS 协议高端专线，三网 IEPL 专线接入及低倍率中转线路，总带宽超 10G，打造超稳定、超高速网络通道。
-- **节点地区**：香港，台湾，日本，美国，新加坡，加拿大，越南，印度尼西亚，泰国，柬埔寨，马来西亚，澳大利亚，巴基斯坦，英国，德国，瑞典，捷克，芬兰，西班牙，尼日利亚，罗马尼亚等等。
-- **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT，确保无论何时何地都能享受 4K 流畅、8K 超清体验.。
-- **专属福利**：
-  - Halo Media 影院营提供 700TB 硬盘存储，直连国际优化线路，观赏全球精彩视频！
-- **新户优惠活动**：
-  - 新用户九折优惠(优惠码：`EXTRA10`)
-- [👉 官网地址](https://bit.ly/3A8mJ88)
-
-### 9）[FScloud](https://dash.fscloud.homes/#/register?code=mAMmbdAY)
+### 8）[FScloud](https://dash.fscloud.homes/#/register?code=mAMmbdAY)
 - **核心优势**：传说中的“一元机场”，仅需 1 元即可享受 100G 流量套餐，性价比超高！
 - **节点地区**：香港，日本，台湾，美国，新加坡等。
 - **流媒体解锁**：解锁Netflix、Disney+、Hulu等主流流媒体。 解锁 ChatGPT。
 - **新用户福利**：注册即享 **3 天 100G 流量免费体验**，采用最新 hysteria2、reality 协议，提供更快、更稳定的连接体验，让你迅速上手、畅享全球网络！
 - [👉 官网地址](https://bit.ly/3C4c4fL)
 
-### 10）[魔戒](https://hkm.cdn-source.com/register?aff=rJp1uYUW)
+### 9）[魔戒](https://hkm.cdn-source.com/register?aff=rJp1uYUW)
 - **核心优势**：不限速、纯流量计费，无到期限制，多人共享无压力，真正做到无限制上网。
 - **节点地区**：香港，日本，台湾，美国，新加坡，加拿大，德国，英国，土耳其，澳大利亚，朝鲜，意大利，葡萄牙，俄罗斯，哈萨克斯坦，乌克兰，以色列，阿根廷，尼日利亚等。
 - **流媒体解锁**：解锁Netflix、Disney+、Hulu等主流流媒体，轻松解锁全球影视内容。 解锁 ChatGPT。
 - **超低价格**：价格低至 1 元，让你轻松尝鲜高品质网络体验！
 - [👉 官网地址](https://bit.ly/3AQH02i)
-
-### 11）[秒连云](https://mly03-1111.miaolianyun.my/#/register?code=6BTFtic3)
-- **核心优势**：全大陆中转不限速大机场，支持香港、台湾、日本、新加坡、美国等关键节点，确保稳定可靠的网络连接.
-- **节点地区**：包括香港，台湾，日本，新加坡，美国，奥地利，以色列，荷兰，冰岛，瑞士，法国，瑞典，巴西，加拿大，匈牙利，英国，印度尼西亚，韩国，俄罗斯，印度，智利等。
-- **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT，多设备同时使用无限制。
-- **超值套餐**：提供 **不限时纯流量一次性套餐**，随用随付，经济实惠！
-- [👉 官网地址](https://mly03-1111.miaolianyun.my/#/register?code=6BTFtic3)
-
-### 12）[Bocchi](https://haruka.bocchi.ooo/#/register?code=yv50YPu4)
-- **核心优势**：拥有 30+ 全球各国节点，采用高纯净家宽 IP，打造无限速 SS 机场，速率最高可达 2Gbps，确保全场景流畅体验。
-- **节点地区**：香港，日本，台湾，美国，新加坡，韩国，阿根廷，英国，尼日利亚，荷兰，加拿大，德国等。
-- **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。
-- **安全保障**：所有服务器均无日志运行，多客户端支持，配套详尽教程，专为新手设计，操作简单易上手
-- [👉 官网地址](https://haruka.bocchi.ooo/#/register?code=yv50YPu4)
 
 ---
 
