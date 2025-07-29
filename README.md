@@ -37,12 +37,12 @@
   - 活动时间：即日起至2025/06/20 23:59
 - [👉 官网地址](https://bit.ly/476L1M5)
 
-### 2）[抖云加速](https://douyun.sbs/#/register?code=BwJyTE2t)
+### 2）[抖云加速](https://douyunjiasu.sbs/#/register?code=BwJyTE2t)
 - **核心优势**：深港IPLC+沪日IEPL，BGP入口极速专线大机场，不限速，不限同时在线设备数。
 - **节点地区**：包括香港、台湾、日本、狮城、美国、韩国、泰国、印度、印尼、越南、马来、迪拜、澳洲、荷兰、英国、德国、法国、瑞典、智利、南非、丹麦、巴西、挪威、西班牙、柬埔寨、俄罗斯、尼泊尔、加拿大、土耳其、哥伦比亚、尼日利亚、阿布扎比等。
 - **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT，多设备同时使用无限制。
 - **超值套餐**：提供 **不限时纯流量一次性套餐**，随用随付，经济实惠！
-- [👉 官网地址](https://douyun.sbs/#/register?code=BwJyTE2t)
+- [👉 官网地址](https://douyunjiasu.sbs/#/register?code=BwJyTE2t)
 
 ### 3）[饭饭云](https://ffkjwl.com/#/register?code=9DwbVMfh)
 - **核心优势**：全千兆高速中转+IPLC专线线路不限速大机场，满足各种需求，特殊时期稳定不怕墙，8K秒开！
