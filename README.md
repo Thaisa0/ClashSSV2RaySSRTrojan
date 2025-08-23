@@ -37,24 +37,28 @@
   - 活动时间：即日起至2025/06/20 23:59
 - [👉 官网地址](https://bit.ly/476L1M5)
 
-### 2）[抖云加速](https://douyunjiasu.sbs/#/register?code=BwJyTE2t)
-- **核心优势**：深港IPLC+沪日IEPL，BGP入口极速专线大机场，不限速，不限同时在线设备数。
-- **节点地区**：包括香港、台湾、日本、狮城、美国、韩国、泰国、印度、印尼、越南、马来、迪拜、澳洲、荷兰、英国、德国、法国、瑞典、智利、南非、丹麦、巴西、挪威、西班牙、柬埔寨、俄罗斯、尼泊尔、加拿大、土耳其、哥伦比亚、尼日利亚、阿布扎比等。
-- **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT，多设备同时使用无限制。
-- **超值套餐**：提供 **不限时纯流量一次性套餐**，随用随付，经济实惠！
-- [👉 官网地址](https://douyunjiasu.sbs/#/register?code=BwJyTE2t)
+### 2）[FatcatCloud](https://baughlyonzh53.fcvipaff.cc/register?aff=WpbutoWF)
+- **核心优势**：全中转大带宽， IEPL专线，不限速高端大机场，秒开4K，支持8K！
+- **节点地区**：香港，日本，韩国，台湾，新加坡，泰国，马来西亚，菲律宾，越南，印度尼西亚，德国，英国，法国，土耳其，巴西，阿根廷等。
+- **流媒体解锁**：支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯等主流流媒体。
+- **超值套餐**：节点全部1倍率。支持ChatGPT、Claude等AI tools
+- [👉 官网地址](https://bit.ly/4nUdble)
 
-### 3）[饭饭云](https://ffkjwl.com/#/register?code=9DwbVMfh)
-- **核心优势**：全千兆高速中转+IPLC专线线路不限速大机场，满足各种需求，特殊时期稳定不怕墙，8K秒开！
-- **节点地区**：包括香港，台湾，日本，新加坡，美国，韩国，印度，德国，菲律宾，巴西，俄罗斯，土耳其，阿根廷，英国，加拿大，卢森堡，荷兰，尼日利亚等。
+### 3）[随心飞](https://www.suixinfei.co/auth/signup?referrer=lZCDAw1W)
+- **核心优势**：采用优质中转广移沪移线路，SS 协议大机场，确保节点全 1 倍率、无限速体验，让你在国内也能享受国际级网络表现。
+- **节点地区**：香港，澳门，日本，台湾，新加坡，美国，韩国，英国，越南，印度尼西亚，马来西亚，缅甸，老挝，柬埔寨，泰国，菲律宾，印度，尼日利亚等。
 - **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。
-- **专属福利**：购买任意套餐年付/半年付，套餐有效期内送Netflix、Disney+、tidal、Amazon Prime Video、Spotify高级会员账号使用！
-- **专属优惠活动**：
-  - 月付，季付 9折（优惠码：`wallkiller9`）。
-  - 半年付，年付 85折（优惠码：`wallkiller85`）。
-- [👉 官网地址](https://ffkjwl.com/#/register?code=9DwbVMfh) 
+- **超值套餐**：提供 不限时“纯流量”套餐，无月付、季付或年付限制，用多少算多少，让你尽享无限畅游！
+- [👉 官网地址](https://www.suixinfei.co/auth/signup?referrer=lZCDAw1W)
 
-### 4）[智连云](https://xinzhilian.xyz/register?code=sWdm0JKC)
+### 4）[跨越网络](https://kuayue2.com/register?code=EJBFlQ0E)
+- **核心优势**：全大陆中转，深港，京德专线，三网入口，电信不限速，跨省不限速，低延时高速稳定，4K 视频秒载，确保无卡顿、流畅的观影体验.
+- **节点地区**：香港，新加坡，日本，台湾，美国，越南，泰国，马来西亚，印度尼西亚，柬埔寨，英国，法国，德国，西班牙，意大利等。
+- **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。
+- **超值套餐**：有“纯流量”套餐，月付低至仅需 10 元。满足各类用户需求。
+- [👉 官网地址](https://kuayue2.com/register?code=EJBFlQ0E)
+
+### 5）[智连云](https://xinzhilian.xyz/register?code=sWdm0JKC)
 - **核心优势**：全大陆中转，深港，京德专线，低延时高速稳定，4K 视频秒载，确保无卡顿、流畅的观影体验.
 - **节点地区**：香港，澳门，韩国，新加坡，日本，台湾，美国，越南，菲律宾，泰国，马来西亚，印度尼西亚，迪拜，印度，澳大利亚，加拿大，英国，墨西哥，法国，以色列，西班牙，德国，土耳其，荷兰，乌克兰，意大利，埃及，哈萨克斯坦等。
 - **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。
@@ -66,15 +70,6 @@
   - 不限时套餐优惠 10%（优惠码：`3333`）。
 - [👉 官网地址](https://bit.ly/47oYLBG)
 
-### 5）[随心飞](https://www.suixinfei.co/auth/signup?referrer=lZCDAw1W)
-- **核心优势**：采用优质中转广移沪移线路，SS 协议大机场，确保节点全 1 倍率、无限速体验，让你在国内也能享受国际级网络表现。
-- **节点地区**：香港，澳门，日本，台湾，新加坡，美国，韩国，英国，越南，印度尼西亚，马来西亚，缅甸，老挝，柬埔寨，泰国，菲律宾，印度等。
-- **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。
-- **超值套餐**：提供 **不限时纯流量一次性套餐**，随用随付，经济实惠！
-- **优惠活动**：
-  - 年付优惠20%（优惠码：`9999`）。
-- [👉 官网地址](https://www.suixinfei.co/auth/signup?referrer=lZCDAw1W)
-
 ### 6）[淘气兔](https://taoqitu.me/index.html?register=OdyZEGNV)
 - **核心优势**：全大陆中转不限速大机场，覆盖等，轻松解锁全球主流影视内容！
 - **节点地区**：包括香港，台湾，日本，新加坡，美国，马来西亚，俄罗斯，英国，西班牙，土耳其等。
@@ -82,33 +77,24 @@
 - **无限流量**：提供 **不限时“纯流量”套餐**，无月付、季付或年付限制，用多少算多少，月费低至 7.8 元，让你尽享无限畅游.
 - [👉 官网地址](https://bit.ly/4fivvyN)
 
-### 7）[动力港](https://dkwi2-80432.dongligang.xyz/#/register?code=xUcZ8i2L)
-- **核心优势**：全大陆优质中转线路，不限速 SS 机场，确保 4K 视频秒开、8K 超清不卡顿.
-- **节点地区**：香港，台湾，日本，新加坡，美国，英国，瑞士，荷兰，土耳其等。
+### 7）[饭饭云](https://ffkjwl.com/#/register?code=9DwbVMfh)
+- **核心优势**：全千兆高速中转+IPLC专线线路不限速大机场，满足各种需求，特殊时期稳定不怕墙，8K秒开！
+- **节点地区**：包括香港，台湾，日本，新加坡，美国，韩国，印度，德国，菲律宾，巴西，俄罗斯，土耳其，阿根廷，英国，加拿大，卢森堡，荷兰，尼日利亚等。
 - **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。
-- **超值套餐**：提供 **不限时纯流量一次性套餐**，随用随付，经济实惠！
-- **优惠活动**：**长期有效**
-  - 6折一次性流量优惠券码： `40%off`
-  - 65折年付优惠券码： `35%off`
-  - 7折季/半年付优惠券码： `30%off`
-  - 75折月付优惠券码： `25%off`
-- [👉 官网地址](https://bit.ly/3VhZhNk)
+- **专属福利**：购买任意套餐年付/半年付，套餐有效期内送Netflix、Disney+、tidal、Amazon Prime Video、Spotify高级会员账号使用！
+- **专属优惠活动**：
+  - 月付，季付 9折（优惠码：`wallkiller9`）。
+  - 半年付，年付 85折（优惠码：`wallkiller85`）。
+- [👉 官网地址](https://ffkjwl.com/#/register?code=9DwbVMfh)
 
-### 8）[跨越网络](https://kuayue2.com/register?code=SJWPypmB)
-- **核心优势**：全大陆中转，深港，京德专线，三网入口，电信不限速，跨省不限速，低延时高速稳定，4K 视频秒载，确保无卡顿、流畅的观影体验.
-- **节点地区**：香港，新加坡，日本，台湾，美国，越南，泰国，马来西亚，印度尼西亚，柬埔寨，英国，法国，德国，西班牙，意大利等。
-- **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。
-- **超值套餐**：有“纯流量”套餐，月付低至仅需 10 元。满足各类用户需求。
-- [👉 官网地址](https://bit.ly/4kSwAAe)
+### 8）[Miaona](https://miaona.co/#/register?code=VeKwsak1)
+- **核心优势**：高端深港 IEPL 专线，采用 SS 协议，4K 清晰不卡、8K 流畅，确保稳定的流媒体解锁体验.
+- **节点地区**：支持香港，台湾，美国，日本，新加坡，印度尼西亚，越南，菲律宾，韩国，泰国，印度，巴西，德国，英国，土耳其，法国，阿根廷，尼日利亚，澳大利亚等，让你的上网体验更加丰富多彩。
+- **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime等主流流媒体。
+- **超值套餐**：年付套餐最低仅 15.6 元/月，让高品质网络服务唾手可得！
+- [👉 官网地址](https://bit.ly/3ugbftg)
 
-### 9）[随心飞](https://www.suixinfei.co/auth/signup?referrer=lZCDAw1W)
-- **核心优势**：采用优质中转广移沪移线路，SS 协议大机场，确保节点全 1 倍率、无限速体验，让你在国内也能享受国际级网络表现。
-- **节点地区**：香港，澳门，日本，台湾，新加坡，美国，韩国，英国，越南，印度尼西亚，马来西亚，缅甸，老挝，柬埔寨，泰国，菲律宾，印度，尼日利亚等。
-- **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。
-- **超值套餐**：提供 不限时“纯流量”套餐，无月付、季付或年付限制，用多少算多少，让你尽享无限畅游！
-- [👉 官网地址](https://www.suixinfei.co/auth/signup?referrer=lZCDAw1W)
-
-### 10）[魔戒](https://hkm.cdn-source.com/register?aff=rJp1uYUW)
+### 9）[魔戒](https://hkm.cdn-source.com/register?aff=rJp1uYUW)
 - **核心优势**：不限速、纯流量计费，无到期限制，多人共享无压力，真正做到无限制上网。
 - **节点地区**：香港，日本，台湾，美国，新加坡，加拿大，德国，英国，土耳其，澳大利亚，朝鲜，意大利，葡萄牙，俄罗斯，哈萨克斯坦，乌克兰，以色列，阿根廷，尼日利亚等。
 - **流媒体解锁**：解锁Netflix、Disney+、Hulu等主流流媒体，轻松解锁全球影视内容。 解锁 ChatGPT。
