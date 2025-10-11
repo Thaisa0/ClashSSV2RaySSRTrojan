@@ -35,7 +35,7 @@
 - **超值活动**：国庆特惠：
   - 全场85折优惠码：（优惠码：`15%OFF`）。
   - 活动时间：即日起至2025/10/08 23:59
-- [👉 官网地址](https://bit.ly/476L1M5)
+- [👉 官网地址](https://qbwiue.meslcloud.com/#/register?code=WniLD0Xj)
 
 ### 2）[FatcatCloud](https://baughlyonzh53.fcvipaff.cc/register?aff=WpbutoWF)
 - **核心优势**：全中转大带宽， IEPL专线，不限速高端大机场，秒开4K，支持8K！
@@ -45,7 +45,7 @@
 - **超值活动**：国庆特惠：
   - 8折优惠码：（优惠码：`fat80`）。
   - 活动周期：即日起至2025年10月20号23点59分
-- [👉 官网地址](https://bit.ly/4nUdble)
+- [👉 官网地址](https://baughlyonzh53.fcvipaff.cc/register?aff=WpbutoWF)
 
 ### 3）[随心飞](https://www.suixinfei.co/auth/signup?referrer=lZCDAw1W)
 - **核心优势**：采用优质中转广移沪移线路，SS 协议大机场，确保节点全 1 倍率、无限速体验，让你在国内也能享受国际级网络表现。
@@ -81,7 +81,7 @@
 - **优惠活动**：
   - 月付 / 半年付 / 年付套餐 10%（优惠码：`guoqing@90`）。
   - 活动时间：即日起 - 2025.10.7 23:59
-- [👉 官网地址](https://bit.ly/4fivvyN)
+- [👉 官网地址](https://taoqitu.me/index.html?register=OdyZEGNV)
 
 ### 7）[饭饭云](https://ffkjwl.com/#/register?code=9DwbVMfh)
 - **核心优势**：全千兆高速中转+IPLC专线线路不限速大机场，满足各种需求，特殊时期稳定不怕墙，8K秒开！
@@ -101,14 +101,14 @@
 - **超值活动**：国庆&中秋特惠：
   - 8折优惠：（优惠码：`251001`）。
   - 全场 结束时间 2025/10/7 23:59
-- [👉 官网地址](https://bit.ly/3ugbftg)
+- [👉 官网地址](https://miaona.co/#/register?code=VeKwsak1)
 
-### 9）[魔戒](https://hkm.cdn-source.com/register?aff=rJp1uYUW)
+### 9）[魔戒](https://mojie.xn--yrs494l.com/register?aff=rJp1uYUW)
 - **核心优势**：不限速、纯流量计费，无到期限制，多人共享无压力，真正做到无限制上网。
 - **节点地区**：香港，日本，台湾，美国，新加坡，加拿大，德国，英国，土耳其，澳大利亚，朝鲜，意大利，葡萄牙，俄罗斯，哈萨克斯坦，乌克兰，以色列，阿根廷，尼日利亚等。
 - **流媒体解锁**：解锁Netflix、Disney+、Hulu等主流流媒体，轻松解锁全球影视内容。 解锁 ChatGPT。
 - **超低价格**：价格低至 1 元，让你轻松尝鲜高品质网络体验！
-- [👉 官网地址](https://bit.ly/3AQH02i)
+- [👉 官网地址](https://mojie.xn--yrs494l.com/register?aff=rJp1uYUW)
 
 ---
 
