@@ -48,12 +48,12 @@
 - **超值套餐**：提供 不限时“纯流量”套餐，无月付、季付或年付限制，用多少算多少，让你尽享无限畅游！
 - [👉 官网地址](https://www.suixinfei.co/auth/signup?referrer=lZCDAw1W)
 
-### 4）[灵鹿加速](https://linlujs.top/#/register?code=4bf8pZoU)
+### 4）[灵鹿加速](https://linlujs.cloud/#/register?code=4bf8pZoU)
 - **核心优势**：全大陆中转，三网入口，电信不限速，跨省不限速，低延时高速稳定，4K 视频秒载，确保无卡顿、流畅的观影体验.
 - **节点地区**：香港，新加坡，日本，台湾，美国，德国等。
 - **流媒体解锁**：解锁 Netflix、Disney+、HBO、YouTube Premium 等视频流媒体
-- **超值套餐**：有“纯流量”套餐，月付低至仅需 3 元。满足各类用户需求。
-- [👉 官网地址](https://linlujs.top/#/register?code=4bf8pZoU)
+- **超值套餐**：月付低至仅需 3 元。满足各类用户需求。
+- [👉 官网地址](https://linlujs.cloud/#/register?code=4bf8pZoU)
 
 ### 5）[智连云](https://xinzhilian.xyz/register?code=sWdm0JKC)
 - **核心优势**：全大陆中转，深港，京德专线，低延时高速稳定，4K 视频秒载，确保无卡顿、流畅的观影体验.
