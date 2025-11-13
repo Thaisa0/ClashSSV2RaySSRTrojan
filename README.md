@@ -93,19 +93,19 @@
 - **超值套餐**：年付套餐最低仅 15.6 元/月，让高品质网络服务唾手可得！
 - [👉 官网地址](https://miaona.co/#/register?code=VeKwsak1)
 
-### 9）[魔戒](https://mojie.xn--yrs494l.com/register?aff=rJp1uYUW)
+### 9）[Fancy network](https://dash.justfancy.net/register?code=6kIGih1n)
+- **核心优势**：全千兆高速中转+IPLC专线线路不限速大机场，满足各种需求，特殊时期稳定不怕墙，8K秒开！
+- **节点地区**：包括香港，台湾，日本，新加坡，美国，韩国，英国，印度，尼日利亚等。
+- **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。
+- **专属福利**：新注册用户可享受88折。(优惠码：`Newoff`)
+- [👉 官网地址](https://dash.justfancy.net/register?code=6kIGih1n)
+
+### 10）[魔戒](https://mojie.xn--yrs494l.com/register?aff=rJp1uYUW)
 - **核心优势**：不限速、纯流量计费，无到期限制，多人共享无压力，真正做到无限制上网。
 - **节点地区**：香港，日本，台湾，美国，新加坡，加拿大，德国，英国，土耳其，澳大利亚，朝鲜，意大利，葡萄牙，俄罗斯，哈萨克斯坦，乌克兰，以色列，阿根廷，尼日利亚等。
 - **流媒体解锁**：解锁Netflix、Disney+、Hulu等主流流媒体，轻松解锁全球影视内容。 解锁 ChatGPT。
 - **超低价格**：价格低至 1 元，让你轻松尝鲜高品质网络体验！
 - [👉 官网地址](https://mojie.xn--yrs494l.com/register?aff=rJp1uYUW)
-
-### 10）[Fancy network](https://dash.justfancy.net/register?code=6kIGih1n)
-- **核心优势**：全千兆高速中转+IPLC专线线路不限速大机场，满足各种需求，特殊时期稳定不怕墙，8K秒开！
-- **节点地区**：包括香港，台湾，日本，新加坡，美国，韩国，英国，印度，尼日利亚等。
-- **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。
-- **专属福利**：新注册用户可享受88折。
-- [👉 官网地址](https://dash.justfancy.net/register?code=6kIGih1n)
 
 ---
 
