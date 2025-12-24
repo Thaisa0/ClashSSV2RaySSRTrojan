@@ -118,25 +118,27 @@
 
 这里再推荐一些我亲自使用过、效果显著的辅助工具和平台，助你更高效便捷地享受海外网络资源：
 
-- **[TG群组搜索机器人](https://t.me/soso)**  
-  想发现更多有趣的电报群？试试这个搜索机器人，快速找到志同道合的小伙伴！
-  
-  👉 [https://t.me/soso](https://t.me/soso)
+- **[BC eSIM](https://www.billionconnect.net)**
 
-- **[暗精灵社工库](https://t.me/AJL01_bot?start=7597927467)**  
-  暗精灵社工库，查询身份户籍，开房记录，手机机主，快递地址，贷款信息，QQ，微信，微博，贴吧，邮箱绑定关系！
+  Billion connect，亿点链接 esim，中国大陆可用，香港IP cmlinkHK的网络，支持chatgpt，使用chatgpt时会解析到新加坡IP cmlinkSG的网络！
   
-  👉 [https://t.me/AJL01_bot?start=7597927467](https://t.me/AJL01_bot?start=7597927467)
+  nihao China 你好中国官方APP内置的 esim提供商，官方认证，服务可靠。
+  
+  注册使用推荐码：`HZAD3RAL`  ，可获得 3 美元折扣。官方不时有折扣活动。语言设置中文，货币设置 CNY人名币，支持微信支付。
+  
+  圣诞节活动：75折优惠码：`XMAS25BC`
+  
+  👉 [https://www.billionconnect.net](https://www.billionconnect.net)
 
-- **[小孩哥社工库](http://t.me/xiaohaige_wangshubot?start=gnpNw9HLkXKN4LO)**  
-  小孩哥社工库，查询身份户籍，开房记录，手机机主，快递地址，贷款信息，QQ，微信，微博，贴吧，邮箱绑定关系！
+- **[Readteago](https://esim.redteago.com/zh-CN)**
   
-  👉 [http://t.me/xiaohaige_wangshubot?start=gnpNw9HLkXKN4LO](http://t.me/xiaohaige_wangshubot?start=gnpNw9HLkXKN4LO)
+  红茶移动 esim ,中国大陆可用，香港IP 博元信息的网络，支持chatgpt，使用chatgpt时会解析到新加坡IP ！
 
-- **[黑盒blackbox社工库](https://t.me/BOXsgkbot?start=YhYcPj4)**  
-  黑盒blackbox社工库，查询身份户籍，开房记录，手机机主，快递地址，贷款信息，QQ，微信，微博，贴吧，邮箱绑定关系！
+  小米，荣耀，oppo，vivo等手机厂商的 全球上网APP背后的服务商，实力强大。
+
+  注册使用推荐码：`OLSO0005`  ，可获得 3 美元折扣。官方不时有折扣活动。
   
-  👉 [https://t.me/BOXsgkbot?start=YhYcPj4](https://t.me/BOXsgkbot?start=YhYcPj4)
+  👉 [https://esim.redteago.com/zh-CN](https://esim.redteago.com/zh-CN)
 
 ---
 
