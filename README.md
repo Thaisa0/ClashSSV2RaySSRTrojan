@@ -32,6 +32,9 @@
 - **流媒体全解锁**：支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯、Crunchyroll、Abema、DMM等主流流媒体，让你畅享海量高清视频。，满足高端用户严苛需求。
 - **独有特色**：独家保障新疆地区，支持 Windows/Mac/iOS/Android/路由器，多设备同时使用.
 - **专属福利**：注册即享 **3 天免费体验**（“白嫖”福利）。
+- **超值活动**：欢庆圣诞+冬至。
+  - 85折优惠码：（优惠码：`15%OFF`）。
+  - 活动时间：即日起至2025/12/26 23:59
 - [👉 官网地址](https://qbwiue.meslcloud.com/#/register?code=WniLD0Xj)
 
 ### 2）[FatcatCloud](https://baughlyonzh53.fcvipaff.cc/register?aff=WpbutoWF)
@@ -39,6 +42,9 @@
 - **节点地区**：香港，日本，韩国，台湾，新加坡，泰国，马来西亚，菲律宾，越南，印度尼西亚，德国，英国，法国，土耳其，巴西，阿根廷等。
 - **流媒体解锁**：支持 Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN、动画疯等主流流媒体。
 - **超值套餐**：节点全部1倍率。支持ChatGPT、Claude等AI tools
+- **超值活动**：圣诞 & 元旦限时活动,全场8折，年度最大折扣，现时促销,配合站内年付自带8折，享受折上折，底至6.4折。
+  - 8折专属优惠码：（优惠码：`fastlink2026`）。
+  - 活动时间：即日起 — 2026年1月20日 23:59
 - [👉 官网地址](https://baughlyonzh53.fcvipaff.cc/register?aff=WpbutoWF)
 
 ### 3）[E-IX](https://cloud.e-ix.com/#/register?code=pDUYUh3F)
@@ -63,7 +69,6 @@
 - **超值套餐**：提供 **不限时纯流量一次性套餐**，用多少扣多少直至用完，如月付低至仅需 3 元。满足各类用户需求。
 - [👉 官网地址](https://login.linlujs.men/#/register?code=4bf8pZoU)
 
-
 ### 6）[智连云](https://xinzhilian.xyz/register?code=sWdm0JKC)
 - **核心优势**：全大陆中转，深港，京德专线，低延时高速稳定，4K 视频秒载，确保无卡顿、流畅的观影体验.
 - **节点地区**：香港，澳门，韩国，新加坡，日本，台湾，美国，越南，菲律宾，泰国，马来西亚，印度尼西亚，迪拜，印度，澳大利亚，加拿大，英国，墨西哥，法国，以色列，西班牙，德国，土耳其，荷兰，乌克兰，意大利，埃及，哈萨克斯坦等。
@@ -81,6 +86,9 @@
 - **节点地区**：包括香港，台湾，日本，新加坡，美国，马来西亚，俄罗斯，英国，西班牙，土耳其等。
 - **流媒体解锁**：解锁Netflix、Disney+、Hulu、HBO、Max、Paramount、AmazonPrime、DAZN等主流流媒体。 解锁 ChatGPT。
 - **无限流量**：提供 **不限时“纯流量”套餐**，无月付、季付或年付限制，用多少算多少，月费低至 7.8 元，让你尽享无限畅游.
+- **超值活动**：圣诞特别活动：
+  - 月付 / 半年付 / 年付套餐 9 折：（优惠码：`taoqitu@@90`）。
+  - 活动时间： 即日起 – 2026.1.1 23:59
 - [👉 官网地址](https://taoqitu.me/index.html?register=OdyZEGNV)
 
 ### 8）[Miaona](https://miaona.co/#/register?code=VeKwsak1)
